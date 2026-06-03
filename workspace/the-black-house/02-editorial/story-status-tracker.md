@@ -8,7 +8,7 @@
 
 | Story | Standalone Output | Original/Edited Split | Notes | PDF Path | Editorial Pass |
 |---|---|---|---|---|---|
-| A Forgotten Memory | pending | pending | pending | pending | pending |
+| A Forgotten Memory | complete | complete | complete | complete | pending |
 | Absolution | pending | pending | pending | pending | pending |
 | Testimony of a Loved One | pending | pending | pending | pending | pending |
 | Of Something I Once Knew | pending | pending | pending | pending | pending |
