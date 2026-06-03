@@ -1,0 +1,397 @@
+
+This place is ennobled with pith and despair; I have found myself
+consumed by it. I hadn\'t been here long when I came to realize this,
+perhaps it has been the season of rains that has eroded my better self.
+Or maybe it was the pallid, disdainful looks on passersby that caused my
+mind to think of strange, odd pieces of philosophy and reason. Whatever
+had happened, I had come to a point in my life that things were starting
+to change.
+
+Nothing could quell the sinking of my nature, not even writing which had
+always helped me to cleanse my thoughts. I was in a different place at
+an indifferent time in the world, there was no place for thought or
+expression, just an acrid sense of slipping away amongst the tourists
+and permanent population. I could have put myself on high and held
+comfort in the notion that I was somehow above it all, but this in
+itself only contributed to my falling away.
+
+In the decade before, I had been a fan of planning my life, it took me
+ten years to realize what I wanted to do with my career and even now as
+I am carrying out this task, it seems more trite as each day passes. How
+has the world at the dawn of the 21<sup>st</sup> Century used knowledge
+like the one I espouse? All bombs and wars on philosophies. There is no
+middle ground, only a balance between extremes.
+
+I have always fancied myself as a writer; in the times between short
+stories and novellas, I have found myself miserable for having not done
+enough to contribute to the world. So, I shifted my focus to science,
+physics primarily, and for a time it filled the void with equations and
+interesting problems for my mind to solve. The solutions I devised
+didn\'t necessarily agree with the repose of the intellectual foundation
+and I quickly found myself a pariah in my own culture. I published
+several papers on my results but they have been largely ignored by the
+annuals. I do not bear any malice regarding my fate but find myself
+wondering my place and position here. I realize I know something
+profound, something that could alter the very nature of space and time
+but I dare not construct the machine. I had built a prototype once and
+it did exactly as I had predicted but the consequences I dare not
+publish; it\'s enough to be ignored but quite another to be considered a
+hack---venturing from a point of no return back to reality is something
+quite impossible. So I have been careful with my methodology and pointed
+with my words. Nevertheless, I still cannot shake the ennui that is
+slowly engulfing me.
+
+I arrived in Europe about two years ago. I began with a stay in Paris
+for half a year and eventually wandered to the east. Since that time, I
+have lived in Amsterdam, Minsk, Kiev, Vilnius, Budapest, and Moravia
+before finding myself in Prague. The premise for these journeys was that
+I was looking for a suitable graduate school to undertake my Doctorate
+in Physics. But I wasn\'t really looking for a school, I was looking for
+a new home. I feel as if I have been rejected by my people and my
+culture---perhaps this isn\'t exactly true. When I think about it, I
+think that I don\'t want to have my work being used in the systematic
+killing of wide swaths of peoples I would never get to know. My work
+should try to rise above the putrid wars and if not offer a solution or
+alternative, then force the change on the global society by proxy. I
+don\'t feel that it is my place to perform such a feat, but can feel it
+in the small spaces of time where it slowly drives me crazy.
+
+The only pleasing times in my life are when I dream. It is in dreams
+that I get the sense of my position relative to my work and desire; it
+is also the place where my subconscious tries to make sense of the
+waking world. Sometimes dreams protrude in this way. Sometimes they show
+me what direction to take and less often what decisions to make. I have
+been thinking about one in particular.
+
+I am standing in a circle of men. They are wearing snappy, pressed
+uniforms of tan ribboned with green; beyond them I can see the darkening
+room become smaller, the walls pulling in until they stop just beyond
+the circle. This action is followed by an eerie scraping noise carrying
+an enormous mass. The room shakes. As my eyes return to the men, I
+notice all but one are wearing hoods with blindfolds stitched in them.
+The hoods, green in color and striped in a solid white band, fit just on
+the crown of the skull and the blindfolds are made from small pieces of
+grey fabric fitting just over each eye. The unhooded man presents me
+with a small red velvet case,
+
+"We want to present you this," he begins slowly. "As a token of our
+appreciation."
+
+He places the case in my hand and I notice it is relatively heavy. Not
+really heavy but weighty as if something of compacted metal is resting
+within. I start to open the case and as I look to the man, he is pulling
+the hood over his eyes. The case lid creaks as I try to fold it open and
+inside a crudely made medallion peeks out at me, gleaming greyly in the
+dim light of the now small room. I squint to read the inscription on the
+rough surface but can only make out \'*kde je dale*?\' (where is the
+way?). The medallion seems to get heavier in my hand and soon I am
+trying to hold it with both hands. The men stand motionless in the
+small, squat room; a loose piece of fabric is blowing in an invisible
+wind on the wall just behind the one facing to my front. Soon the case
+is too heavy to hold and I drop it on the floor. The medallion jumps out
+and shatters on the floor. A wind tears though the room and the walls
+blow back away from the circle. The men stay fixed, each facing in to
+me, motionless as the wind turns from breeze to gale. They are fixed,
+unmoving, able to neither see nor affect the world only I am
+participating in. The case is broken, its lid unhinged, the medallion in
+shards, the pieces now orbiting the circle of men, dragging across the
+floor in a sickening thump. I hear voices on the wind.
+
+"*Kde je dale, kde je nassim..*?"
+
+For a moment a source of light appears in the stretched darkness. It is
+one star, then another, then a bright one far off, then two very bright
+ones very near. Around the two bodies a series of five planets orbit.
+One of them is blue and has water on its surface. The scene focuses
+tightly on the planet and it has taken the place of the blindfolded man
+just before me. I see it is rather small, two moons and a debris field
+surrounding it. The debris field is made of the shards from the broken
+medallion, some objects still carry the writing but it is twisted,
+convoluted, unutterable. I quit the shards and look closely at the
+planet, it has continents and stone cities and breathable air. If I
+squinted, I could see large movements of population across its surface.
+But I can\'t see it that well, it is pulling away from me and the wind
+is dying down, the room is becoming dark and the men are disappearing
+into the fabric of space where the planetary system resides. The walls
+are returning to their first position and I feel as if I\'m about to
+wake\...
+
+The world is black and black, a vast uncharted landscape devoid of light
+or objects. I can feel its oiliness over my skin and the smell of putrid
+diesel in my nose. There is a feeble green light emanating from some
+unknown source; it is flashing as regular as a ticking clock. My
+emotions are calm, as the still waters on the small planet. I am the
+source and the fruit of all labors. I am the architect staring at a
+blank piece of engineering paper, what I etch will stand for a thousand
+years. I am history and I am not exactly a piece of it; I flow between
+history and space and time. I am the ancient people who populate all the
+planets in the galaxy and I am no one. I am tangible and I am a wraith.
+The blackness is fading, the green light vanishing into some unseen
+horizon.
+
+I am standing in a ruined flat in an unkempt part of town. Dust and
+debris, bits of concrete, plaster, and decay cling to the corners and
+lay out in large unbroken sheets across the floor. The room is empty
+save a small rickety table and a computer. I am at my laptop watching
+myself typing furiously at the keyboard. Torrents of letters, sentences,
+and paragraphs assault the screen. A swirl of smoke is rising from the
+top of my head, my hair is white and long and standing on end. I try to
+see what I am writing, to at least catch a glimpse of the title. My eyes
+strain to read the words, I believe they are in English but I cannot be
+certain.
+
+*Annuals in Physics, The Glide-Stream of Space-Time and the Journey to
+its Far Reaches*
+
+What about the first sentence, can I read that? I must move closer to
+the screen. But I find that I cannot move closer, there is an invisible,
+almost magnetic force that is repulsing me from approaching. The force
+is coming from the other me at the computer.
+
+"In times such as these, man must consider the what is beyond the limits
+of his science...what we know today is what was known two thousand years
+ago...we cannot escape our fate unless we look somewhere completely
+different...where is there new excitement that holds high promise...not
+here, not anywhere near here...but in the depths of space and time where
+our thoughts must inevitably coalesce with matter...the mind is the
+boundary dweller, the machine the bridge leaving this world commencing
+an era of discovery not dared dreamt before...this design I proffer
+exists beyond the limit of what is known to that which is unknown and
+unforeseen...beyond time is what awaits us\..."
+
+I am fairly close to myself now, I am pushing with all my might against
+the repulsive force. As if sensing my presence, I at the computer turn
+to look at myself. He smiles wryly and winks knowingly.
+
+"If you only knew what I know, then you\'d have something to worry
+about."
+
+But I am not me, he is somebody else. Me, yes, but a shade something
+different. He doesn\'t even really look like me but I sense we are the
+same. Perhaps from a different time or a different set of circumstances,
+but nevertheless, we are identical. He stands staring at me.
+
+"You know what the answer is, you have always known. Why must you not
+see it?"
+
+"I have no idea what you are talking about," I croak feebly.
+
+"Don\'t give me that. You have read my work and you have founded my
+work. Without you I could not have done what I\'ve planned to do and
+what I\'m going to do."
+
+The computer moans, its fan beating rhythmic, incomprehensible phrases.
+
+"You have brought life where there once was none," he continues while
+patting the computer which is now beginning a slow crescendo to a wail.
+"You have seen the future."
+
+The computer is wailing loudly now and is slowly assembling a tune from
+the random utterances. It is regular and systematic, organized. He
+smiles at me, his eyes a dark brown, almost black like the fabric of
+space but without pinpoints of light. I can feel the vastness behind his
+gaze.
+
+"Look to the mirror and find the answer, my friend. And we\'ll both be
+better for it."
+
+I quickly thrust my eyes open to the wail of the alarm. I must have
+forgotten to turn it off from the week before when I had a teaching job.
+
+While traveling through Europe, I have filled my waking hours by
+performing research projects I feel test the limits of my intelligence
+and imagination. If, according to the Greeks, everything has been done
+there must be some interesting work in the small spaces in between.
+After a few weeks in Prague, a paper was nagging in my brain. I ignored
+the impulse and instead filled my time by hanging out by the river and
+in subterranean pubs in Vinohrady. But my neglect was to manifest
+revenge in the form of piercing headaches and I found that I had to
+write the paper.
+
+*Thoughts and Reflections of a Man Caught Between Himself and the World
+he has Created*
+
+Between the past and the future lies what is undone. Despite the
+obviousness of the statement, it remains, in terms of physics, that this
+is all that there is---there is no more. Time is the only vehicle of
+change. It is an inescapable conclusion that will be reached in any
+discussion. But what is time, this phenomenon we experience so linearly?
+
+Einstein in the early 20<sup>th</sup> Century said that time was
+relative. In his paper on the Twin Paradox, he noted that the flow of
+time is dependent upon the point of view of the observer. In his
+argument, one twin sets out on a voyage into space at the speed of
+light. He travels a set distance, ten light-years out and ten
+light-years back. When the twin returns to Earth, he discovers that many
+centuries have passed and his twin has long perished. Minkowski,
+Einstein\'s professor, agreed with him and, as a consequence, was the
+first to devise the higher order of geometry necessary to understand the
+paradox. Greeted with great skepticism at the time, their contention
+relies on the premise that the observer is participating in the
+omnipresent flow of time upon a space-time manifold. Wigner, more
+specifically, speaks of a spatial-temporal manifold where time is a
+property of the system just as the spatial coordinates are. What if, for
+the sake of a tangible argument, the observer could remove himself
+temporarily from the manifold and freely extrapolate positions in space
+independent of time and in time independent of space? What if he could
+retain this theoretical removal from the manifold and manipulate its
+properties? How could such a thing be accomplished? In the paradigm of
+language this may be hard to devise. But conceptually it is not
+unreasonable to assume that a machine could aid such a feat. It has been
+written in antiquity that Buddhist monks could remove themselves from
+time and see the future and visit the past. Now this distinction is
+interesting. They *see* the future and *visit* the past. Assuming there
+are no errors in translation, this means that the past is fixed and the
+future is not since it is dependent upon the past.
+
+A scientist of recent fame in the late 20<sup>th</sup> Century named
+Samuel Uncler constructed a device called *The Cipher* which was reputed
+to remove a person from his temporal trappings allowing him to navigate
+time and space. He argued his machine was based on earlier
+archaeological evidence of other machines. The story goes something like
+this.
+
+Around 1935, a team of archaeologists from Britain accidentally
+discovered a temple while exploring some ruins in Tunisia. The temple
+was relatively unremarkable and fit the time when it was constructed,
+about 2100BC. In one of the chambers deep inside the temple was a door
+embossed with a seal of the pharaoh, Markidu, warning the contents of
+the room should not be disturbed on his order, under penalty of
+execution. Breaking the seal and pulling back the large, stone door, an
+elongated room spread out before them. In the center of the room lay
+artifacts not from the time of Markidu\'s reign, save a scroll in situ.
+The scroll spoke that the artifacts were found in the lands to the North
+on a military conquest by an unnamed officer.
+
+It was reported by one of the archaeologists, Arthur Johansen, that the
+artifacts were constructed out of a type of metal not known to the time
+and not known to current science. There were 40 polished rings---three 4
+centimeters in diameter, fifteen 12 centimeters in diameter, and
+twenty-five between 14 and 16 centimeters in diameter, graduated in
+scale. Also, there were six metallic tubes and a strange metallic sphere
+that flaked large sections off if scraped with a tool. It was noted that
+the sphere absorbed light and glowed brilliantly when brought in from
+exposure to bright sunlight into the dark chambers. There were three
+bands across the surface of the sphere as if it were mounted in the set
+of the smaller rings. Johansen made a drawing of what the machine might
+have looked like if it were to be reassembled.
+
+Shortly after discovering the artifacts, the British military was called
+to the site and the contents of the chamber were taken to University
+College London for study by government scientists. Johansen\'s report
+was classified and the artifacts disappeared from sight. It was rumored
+they were shipped clandestinely a few years later to the University of
+California for further study. At the time the laboratory was working on
+the research related to the first atomic bomb, and was reputed to have
+the most modern equipment to study the metallic properties of the
+artifacts. A leaked memo dated 25 March 1938 noted that the metallic
+objects were crystalline in structure and could not have been naturally
+occurring. It was concluded it must have been synthesized and
+recommended that a query into the work the Nazi scientists should be
+considered. That if they had constructed the artifacts they could build
+weapons of great power. Shortly after the memo, or so the story goes,
+the artifacts were shipped to an undisclosed location and quietly
+buried.
+
+Dr. Uncler found Johansen\'s report while rooting through the archives
+of the British Museum. He also found the 1938 memo on a fragment of
+microfiche. In 1990, he published a paper *Means of Travel in the
+Ancient Stellar World* where he detailed the ancient machine and what
+its theoretical purpose might have been. There was no script reported on
+the artifacts but nevertheless argued that they comprised a machine that
+could create a pocket of independent, or in his words, null space-time
+where an individual or collection of individuals could use the pocket to
+move within the entirety of time and space. He said that such a machine
+would allow the traveler to travel in time or in space independently,
+but not both. He exampled that the machine could be directed to open a
+pocket where the distance say between here in Prague and Cydonia Mensae
+on Mars would be only a few meters instead of 75 million kilometers.
+Alternately, a pocket could be opened at a single point, say again in
+Prague, to a point in the past of hundreds to thousands to millions of
+years before. He did not detail if the future could be navigated in such
+a fashion and I would expect that such a feat is truly impossible since
+there is no real point for the machine to resonate with. Uncler noted
+that there is logic and a formed higher geometry to the space-time
+manifold which defines specific properties. It is the higher geometric
+system that allows a series of differentiated metrics whose complexity
+increases with time. He argued that a lower complexity metric of
+sufficient order can be specifically identified where the traveler could
+determine where or when he wanted to go. He called this process \'time
+dilation\', in that time is not truly manipulated but dilated, opened up
+and made passive upon the manifold. In late 1992, Dr. Uncler constructed
+a prototype *Cipher* that was tested at a laboratory on the campus of
+the University of California. Although I suspected the work was
+classified and not be able to glean much information, I had the unique
+opportunity to conduct a phone interview with one of his associates and
+reputed Cipher project manager, Dr. Steven Sanderson. Dr. Sanderson,
+although vague in his answers to my questions, detailed that Uncler had
+conducted three unsuccessful tests and two successful tests with two
+unnamed colleagues. I asked him if he could provide any details about
+Uncler\'s Cipher but he passed over my request with \'Sorry, it\'s
+classified.\' He directed me to Uncler\'s last publication regarding the
+machine; an article in the October 1993 issue of *Physics Today* from
+which the information for this article was obtained. There were few
+details about the machine itself, instead, the article framed Uncler\'s
+argument of a dynamic, controllable, space-time continuum. After this
+article, there is no further mention of Dr. Samuel Uncler except for
+critical reviews of said article where he is lambasted and ridiculed for
+his theories. Not even Carl Sagan would come to his rescue.
+
+I searched the public records for Samuel Uncler to determine what may
+have happened to him. I performed this research on the new grid
+internet, a powerful version beyond the old internet of just a few years
+ago. I discovered he was born in Chicago in 1965, went to the University
+of Chicago where he got his undergraduate degree in Theoretical Physics
+in 1986. He then studied at University of California, where he received
+his doctorate in High-Energy Physics in 1991. He was last employed by
+the University from 1990 to 1993. There is no mention if he was
+transferred or fired or if he resigned his commission at the government
+facility. I had filed a request under the Freedom of Information Act for
+employment and assignment records but so far there is no word. I then
+turned my attention to marriage and death certificates. Apparently, Dr.
+Uncler was married in 1987 to Jenine Goddard and had a daughter, Emilia
+in 1988. He was divorced in 1990 and there is no record of another
+marriage. Also, there is no record of death. Dr. Uncler held a passport
+that was not renewed after its expiration in 2002.
+
+Between the past and the future lies what is undone. As with the tenet
+of physics, this is all there is regarding Dr. Samuel Uncler. If it
+begins with the Greeks and the Roman conception of time and space, it
+seems to end with Uncler in the only recorded time dilation experiment.
+Did he create a pocket whereby a person could travel to the far reaches
+of space and time? What has happened to him these past fifteen years?
+Was he reassigned to a classified project and his identity erased in a
+cloak-and-dagger Cold War style coup? Did he successfully travel to a
+far point in space where I am the twin in Einstein\'s paradox waiting
+until old age for his return? Or did he perish in one of his experiments
+and his death not recorded because of the nature of his demise? Many
+questions but few answers. It remains for time to uncover these
+mysteries\...
+
+That\'s about as far as I have gotten with the paper. I had originally
+conceived of this paper while dining at Tartino\'s on Fisherman\'s Wharf
+in San Francisco some ten years earlier but never pursued it. I thought
+I had forgotten the work until very recently. I was riding on the tram
+during what was supposed to be the summer. Instead of hot, sunny days, I
+was greeted with cold and rain. In my lingering depression and finding
+myself staring at the scenery passing by, the paper ebbed back into my
+thoughts and soon I found I was becoming obsessed with finishing it. I
+immediately went home and started writing in earnest; I should have been
+teaching a private lesson with a client named Daniela but I quickly
+canceled it. If I go on like this, I won\'t have any money at all. But
+right at this moment it doesn\'t matter. Besides, it seems my client is
+looking for more than just English lessons and being recently divorced,
+I wasn\'t looking for a new relationship in this foreign land. There
+were too many answers to questions in contrasting languages.
+
+It is a Wednesday like any other here, the city calls to me. In the
+deafening roar of silence, the past and the present mingle like two
+lovers recently estranged. I have the urge to wander the streets, to
+walk upon the same cobbles Goethe had and see myself as a twisted,
+post-modern Faust---sans tragedy. Today the sky is a deep grey, there is
+no distinction of clouds stretching to the horizon. Rain pummels the
+roofs of yawning buildings where the tourists take refuge and me, well,
+I stare blindly into the monochrome watercolor.
+
+<img src="media/image1.png" style="width:1.44792in;height:0.54167in" />
+
