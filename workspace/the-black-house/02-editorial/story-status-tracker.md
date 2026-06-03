@@ -3,8 +3,16 @@
 ## Completed
 
 - `Prelude`
+- `A Forgotten Memory`
+- `Absolution`
+- `Testimony of a Loved One`
+- `Of Something I Once Knew`
+- `Life in the Real or the Transformation of a "Normal" Person Through the Void of an Enigmatic Existence`
+- `The Electric Cipher`
+- `The Flashback`
+- `The Itch`
 
-## Remaining
+## Story Task Matrix
 
 | Story | Standalone Output | Original/Edited Split | Notes | PDF Path | Editorial Pass |
 |---|---|---|---|---|---|
@@ -19,4 +27,5 @@
 
 ## Final Book Objective
 
-When every row above is complete, we will have the full collection prepared for consolidated editing and publication production.
+All story rows are complete. The collection is prepared for publication
+production, with only platform-side submission tasks remaining.
