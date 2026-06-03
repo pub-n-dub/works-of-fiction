@@ -1,0 +1,20 @@
+---
+title: The Black House
+subtitle: A Book of Nine Short Stories
+creator:
+  - role: author
+    text: Francis Dove
+language: en-US
+rights: "Copyright © 2018 Francis Dove. All rights reserved."
+date: 2026
+identifier:
+  - scheme: UUID
+    text: "urn:uuid:128ee7fe-4e9b-4375-bdce-fc570d9004e3"
+description: >
+  A short-story collection built around visions, dread, memory,
+  transformation, and unstable reality.
+subject:
+  - Gothic fiction
+  - Horror
+  - Short stories
+...

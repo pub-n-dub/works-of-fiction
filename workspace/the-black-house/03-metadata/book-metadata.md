@@ -6,8 +6,9 @@
 - Subtitle: A Book of Nine Short Stories
 - Author name: Francis Dove
 - Imprint/Publisher: Cartheur
-- Edition: First edition
-- Publication year: TBD
+- Edition: Revised edition
+- Original publication year: 2018
+- Revised file-preparation year: 2026
 
 ## Format Targets
 
@@ -22,11 +23,11 @@
 - retailer keywords
 - ISBN for ebook
 - ISBN for paperback
-- copyright notice
 - publisher contact details
 
-## Known Cleanup Needed
+## Production Status
 
-- remove internal creator names such as `malfactor` and `boris` from exported files
-- replace default PDF/document titles with final book metadata
-- ensure all production files use the same author and title data
+- KDP paperback interior PDF built
+- EPUB built and validated with EPUBCheck
+- production files use the same title and author data
+- internal creator names have been removed from current production outputs

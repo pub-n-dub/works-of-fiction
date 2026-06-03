@@ -43,18 +43,37 @@ The current canonical manuscript in this workspace is:
 - `07-rights/`: ISBNs, rights notes, permissions, publishing platform records
 - `08-archive/`: retired workspace drafts and superseded materials
 
-## Immediate Next Steps
+## Current Status
 
-1. Lock the table of contents and included stories.
-2. Clean author/publisher metadata.
-3. Define front matter and back matter.
-4. Create the working edited manuscript from the canonical source.
-5. Build polished ebook and print editions from the cleaned manuscript.
+The internal production work for this title is substantially complete.
+
+Completed in this workspace:
+
+1. Canonical manuscript selection and extraction
+2. Story-by-story standalone processing and edited outputs
+3. Integrated edited book manuscript
+4. KDP paperback interior PDF
+5. EPUB export with cover and metadata
+6. Local EPUB validation and KDP submission-link documentation
+
+## Remaining External Steps
+
+These are the remaining publication-platform tasks that are not completed
+inside the repo itself:
+
+1. Finalize retailer metadata such as description, keywords, and BISAC
+2. Assign ISBNs if you plan to use your own instead of Amazon-assigned ones
+3. Upload the EPUB and paperback PDF to KDP
+4. Review the files in KDP Online Previewer / Print Previewer
+5. Submit the revised edition on Amazon
 
 ## Current Production Track
 
 We now have:
 
 - a canonical manuscript in `01-manuscript/`
-- an editable Markdown working extract in `01-manuscript/the-black-house-working.md`
-- a LaTeX print scaffold in `05-production/print/black-house-print.tex`
+- an integrated edited manuscript in `01-manuscript/the-black-house-edited.md`
+- a KDP paperback interior in `05-production/print/black-house-kdp-print.pdf`
+- a validated EPUB in `05-production/ebook/the-black-house-kdp.epub`
+- an EPUB production path in `05-production/ebook/`
+- platform submission links in `07-rights/platform-links.md`
