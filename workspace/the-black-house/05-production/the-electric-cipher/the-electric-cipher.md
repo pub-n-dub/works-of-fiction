@@ -1,51 +1,20 @@
+# The Electric Cipher
 
-I moved into the house on Cappuccino at the beginning of June. I was
-greeted by two people---a man and a woman---who assured me that the
-landlord would not ask any questions if I decided to move into the
-house, they had told him I was a "friend" and left it at that. I had
-known Frank eight months, we had met in the hospital; we weren't
-necessarily friends but our company made the experience we had together
-bearable.
+I moved into the house on Cappuccino at the beginning of June. I was greeted by two people---a man and a woman---who assured me that the landlord would not ask any questions if I decided to move into the house, they had told him I was a "friend" and left it at that. I had known Frank eight months, we had met in the hospital; we weren't necessarily friends but our company made the experience we had together bearable.
 
-My room was in the back, an addition hastily slapped onto the rear of
-the house to accommodate another bedroom, to create another renter.
-Although I hadn't met the landlord, I had a feel for where his
-priorities were; immediately I sensed I wouldn't like him very much, if
-at all. But as long as I paid my rent and he left me alone, then things
-would be fine. There would be no conflict. No reason to get upset. And I
-couldn't afford to become upset. I had come to the peninsula to relax
-from the stress of the city, where my job had taken its toll on my
-nerves; my patience was shot, but at least I had attained enough in
-disability grants---a post office box served as an address for the
-checks---to support myself for at least six months or longer without
-doing any work. When the six months were up, then I could reapply if the
-problems were not resolved. I considered what I found myself in a
-blessing.
+My room was in the back, an addition hastily slapped onto the rear of the house to accommodate another bedroom, to create another renter. Although I hadn't met the landlord, I had a feel for where his priorities were; immediately I sensed I wouldn't like him very much, if at all. But as long as I paid my rent and he left me alone, then things would be fine. There would be no conflict. No reason to get upset. And I couldn't afford to become upset. I had come to the peninsula to relax from the stress of the city, where my job had taken its toll on my nerves; my patience was shot, but at least I had attained enough in disability grants---a post office box served as an address for the checks---to support myself for at least six months or longer without doing any work. When the six months were up, then I could reapply if the problems were not resolved. I considered what I found myself in a blessing.
 
-That night Frank, Marian, and I sat on the living room floor; I talked,
-they smoked pot. It was a housewarming, a newly kindled friendship
-gathering bent on promoting the good in us. I felt warm and secure.
+That night Frank, Marian, and I sat on the living room floor; I talked, they smoked pot. It was a housewarming, a newly kindled friendship gathering bent on promoting the good in us. I felt warm and secure.
 
-"So what are you going to do now that you have the time?" Frank asked
-me.
+"So what are you going to do now that you have the time?" Frank asked me.
 
-"I don't know," I told him. "Maybe do a little writing. I've always
-wanted to since I was a kid, and I never had the chance. And since I
-seem to have nothing better to do."
+"I don't know," I told him. "Maybe do a little writing. I've always wanted to since I was a kid, and I never had the chance. And since I seem to have nothing better to do."
 
-Marian laughed. She sat cross-legged on the floor, close to Frank. If I
-hadn't known better, I would have thought she was Frank's girlfriend.
-She was nice to look at: brown hair, brown eyes, fair skin, medium
-height, thin. She almost looked native American, but I wasn't certain.
-If she was sleeping with Frank, I wasn't sure why. He was overweight,
-had a bad complexion, and looked as if he needed a shower just after
-stepping out of one.
+Marian laughed. She sat cross-legged on the floor, close to Frank. If I hadn't known better, I would have thought she was Frank's girlfriend. She was nice to look at: brown hair, brown eyes, fair skin, medium height, thin. She almost looked native American, but I wasn't certain. If she was sleeping with Frank, I wasn't sure why. He was overweight, had a bad complexion, and looked as if he needed a shower just after stepping out of one.
 
 "Sounds like a good idea. More power to you." He said.
 
-Marian passed the joint to me. I smirked and handed it to Frank. She
-eyed me carefully, perhaps seductively, but I wasn't in the right frame
-of mind to make a correct observation.
+Marian passed the joint to me. I smirked and handed it to Frank. She eyed me carefully, perhaps seductively, but I wasn't in the right frame of mind to make a correct observation.
 
 "You don't smoke?"
 
@@ -53,36 +22,15 @@ of mind to make a correct observation.
 
 "Medication for what?" Frank asked.
 
-"Nothing important." I smiled, hoping it would answer the question. It
-didn't seem to, so I added: "Something to help me relax."
+"Nothing important." I smiled, hoping it would answer the question. It didn't seem to, so I added: "Something to help me relax."
 
 "I see." Marian said.
 
-The evening waned. I was tired and didn't feel like being around people
-any longer, but I had to be polite about an exit. I didn't want to
-disturb the newfound "good feeling" we were experiencing.
+The evening waned. I was tired and didn't feel like being around people any longer, but I had to be polite about an exit. I didn't want to disturb the newfound "good feeling" we were experiencing.
 
-"Look guys, I'm a little tired, and I still have to rearrange my room.
-Thanks."
+"Look guys, I'm a little tired, and I still have to rearrange my room. Thanks."
 
-They shook their heads and I left them. I passed Frank's room; the door
-was open a crack and I saw no furniture inside---not even a bed---only
-scattered piles of clothes. I pulled the door shut and looked down the
-hall. Frank and Marian were laughing between coughs. I thought to turn
-back, sit with them and spend the remainder of the evening conversing;
-instead, I walked into my room and shut the door behind me. My room was
-a shambles. I stood gaping at the disarray before me---a definite mess.
-No sense in trying to arrange anything; I practically had no furniture
-either, I had left it all in the last house. All I'd managed to take was
-a futon mattress and a stack of plastic milk crates that I could make a
-bookshelf out of. I put a couple of books away, stacked some clothes,
-unfolded the mattress, and lay down. The room was carpeted and warm; I
-would have to get a fan to keep it cool, to at least make it bearable.
-It was warm, so warm, almost too warm to sleep, but it was quiet, and
-that was a plus. Who knew what was going to happen at this house, but so
-far I felt okay with it. The diamond silver and black carpet proved to
-be interesting. I let my eyes wander over the pattern, it was the solace
-my brain needed to put me to sleep.
+They shook their heads and I left them. I passed Frank's room; the door was open a crack and I saw no furniture inside---not even a bed---only scattered piles of clothes. I pulled the door shut and looked down the hall. Frank and Marian were laughing between coughs. I thought to turn back, sit with them and spend the remainder of the evening conversing; instead, I walked into my room and shut the door behind me. My room was a shambles. I stood gaping at the disarray before me---a definite mess. No sense in trying to arrange anything; I practically had no furniture either, I had left it all in the last house. All I'd managed to take was a futon mattress and a stack of plastic milk crates that I could make a bookshelf out of. I put a couple of books away, stacked some clothes, unfolded the mattress, and lay down. The room was carpeted and warm; I would have to get a fan to keep it cool, to at least make it bearable. It was warm, so warm, almost too warm to sleep, but it was quiet, and that was a plus. Who knew what was going to happen at this house, but so far I felt okay with it. The diamond silver and black carpet proved to be interesting. I let my eyes wander over the pattern, it was the solace my brain needed to put me to sleep.
 
 \* \* \* \* \*
 
@@ -90,84 +38,41 @@ my brain needed to put me to sleep.
 
 "I really have no idea."
 
-I am sitting with her in a coffee shop by the beach; the day is overcast
-and dreary, it is perfect irony.
+I am sitting with her in a coffee shop by the beach; the day is overcast and dreary, it is perfect irony.
 
 "Are you going to live up to your promises?"
 
-I look at her, tufts of red hair falling into her eyes. She is pretty
-while being unattractive. Maybe I'd had a good relationship with her,
-maybe we had been in love, maybe could have spent our lives together,
-but that's all past now.
+I look at her, tufts of red hair falling into her eyes. She is pretty while being unattractive. Maybe I'd had a good relationship with her, maybe we had been in love, maybe could have spent our lives together, but that's all past now.
 
 "I can't, you know, I need some time to myself."
 
-"You're flaking out of it, aren't you? Do you know how much that hurts
-me? I don't think you do. I have tried and tried with you. I tried to
-take care of you as best I could, but it's not enough for you."
+"You're flaking out of it, aren't you? Do you know how much that hurts me? I don't think you do. I have tried and tried with you. I tried to take care of you as best I could, but it's not enough for you."
 
-I put my fingers around my coffee cup, the heat pressed into the palms
-of my hands.
+I put my fingers around my coffee cup, the heat pressed into the palms of my hands.
 
-"My father reserved the hall, and I shelled out nearly $5000. You said
-only two months ago you still wanted to get married, now you've changed
-your mind...again."
+"My father reserved the hall, and I shelled out nearly $5000. You said only two months ago you still wanted to get married, now you've changed your mind...again."
 
-"Things have changed, I've had a hard time." She never knew what I went
-through, how I felt.
+"Things have changed, I've had a hard time." She never knew what I went through, how I felt.
 
 She leans over the table and brings her face close to mine.
 
-"I'm going to make you hurt for what you did to me. Really hurt, so you
-can feel like I do."
+"I'm going to make you hurt for what you did to me. Really hurt, so you can feel like I do."
 
-"Don't listen to her, she doesn't know real pain like you do." A voice
-whispers quietly, distantly, in my ear. I look in the direction of it
-and see a tall, thin man in an olive green suit and tie. He is sitting
-at the table next to us. His clean-shaven face is very long and his
-complexion dark. He has a frothing latte on the table before him, it
-spills over the rim of the glass. His glowing green eyes glance at her
-and then fix on me. I turn back to her and smile.
+"Don't listen to her, she doesn't know real pain like you do." A voice whispers quietly, distantly, in my ear. I look in the direction of it and see a tall, thin man in an olive green suit and tie. He is sitting at the table next to us. His clean-shaven face is very long and his complexion dark. He has a frothing latte on the table before him, it spills over the rim of the glass. His glowing green eyes glance at her and then fix on me. I turn back to her and smile.
 
-"You don't need her," he says. "She never loved you, she knows she can't
-get anybody else."
+"You don't need her," he says. "She never loved you, she knows she can't get anybody else."
 
-He gets up and puts his hand on my shoulder. His lips are close to my
-ear.
+He gets up and puts his hand on my shoulder. His lips are close to my ear.
 
 "I can show you real love."
 
 \* \* \* \* \*
 
-I shook myself awake. The room was dark. I cocked my head, all my senses
-awake, sensitive---I heard the slightest sounds, felt the faintest
-movements. Frank and Marian were in the room next to me. I could hear
-them having sex; someone's ass was squeaking on the hardwood floor. At
-once I was sickened by the sound, it rang in my head. I placed my hands
-over my ears, but it did no good. Their breathing became louder and
-louder---Marian was panting and Frank was moaning. Almost as soon as the
-noises began, they stopped. I calmed myself and suddenly found what was
-going in the next room hilarious. I wished to laugh out loud, but I
-regained control. The sounds nearly ceased, became barely audible---I
-found I missed their absence. I knelt at the head of the mattress, on a
-stack of pillows, and set my ear to the wall so that I might hear.
+I shook myself awake. The room was dark. I cocked my head, all my senses awake, sensitive---I heard the slightest sounds, felt the faintest movements. Frank and Marian were in the room next to me. I could hear them having sex; someone's ass was squeaking on the hardwood floor. At once I was sickened by the sound, it rang in my head. I placed my hands over my ears, but it did no good. Their breathing became louder and louder---Marian was panting and Frank was moaning. Almost as soon as the noises began, they stopped. I calmed myself and suddenly found what was going in the next room hilarious. I wished to laugh out loud, but I regained control. The sounds nearly ceased, became barely audible---I found I missed their absence. I knelt at the head of the mattress, on a stack of pillows, and set my ear to the wall so that I might hear.
 
-About an hour later, I managed to get myself back to sleep and woke
-again late in the afternoon. The house was empty. I showered, washing
-myself of the oily residue on my skin---stale sweat from the dreams I'd
-had. I wasn't sure if what I'd heard in my roommates' room was real, it
-could've been part of my imagination. Time to focus on reality. I shook
-off the haze and popped open a sugary soda from the fridge. I had to go
-to the university today to see an old friend who was lecturing there,
-Steve Sanderson. He had come to see me while I was in the hospital after
-my breakdown in the lab. He told me if I ever needed to talk, to come on
-by. I felt it was time to take him up on his offer. I knew I should
-probably go to see my therapist too, she had said if I started to have
-dreams about Judy, I should make an appointment. But I felt okay,
-although a little queasy. I'll survive.
+About an hour later, I managed to get myself back to sleep and woke again late in the afternoon. The house was empty. I showered, washing myself of the oily residue on my skin---stale sweat from the dreams I'd had. I wasn't sure if what I'd heard in my roommates' room was real, it could've been part of my imagination. Time to focus on reality. I shook off the haze and popped open a sugary soda from the fridge. I had to go to the university today to see an old friend who was lecturing there, Steve Sanderson. He had come to see me while I was in the hospital after my breakdown in the lab. He told me if I ever needed to talk, to come on by. I felt it was time to take him up on his offer. I knew I should probably go to see my therapist too, she had said if I started to have dreams about Judy, I should make an appointment. But I felt okay, although a little queasy. I'll survive.
 
-Steve was in his office when I arrived. He greeted me, then offered me a
-seat.
+Steve was in his office when I arrived. He greeted me, then offered me a seat.
 
 "Haven't seen you in a while, Darrin. How have you been?"
 
@@ -177,30 +82,19 @@ seat.
 
 "Yeah, I suppose. If you like suburbia."
 
-"Did you want to talk about something? I have a class in twenty minutes
-and I need to review my lecture."
+"Did you want to talk about something? I have a class in twenty minutes and I need to review my lecture."
 
 "I just wanted to see an old friend."
 
-He laughed and tapped his pencil on his desk. "Here I am, you feel
-better?"
+He laughed and tapped his pencil on his desk. "Here I am, you feel better?"
 
-I laughed. "I don't know, had some disturbing dreams last night, can't
-make anything out of them."
+I laughed. "I don't know, had some disturbing dreams last night, can't make anything out of them."
 
 "Maybe you should see that psychiatrist, that's what they're paid for."
 
-"I don't like those headshrinkers, they play one huge mind game.
-Besides, she has this patronizing way of telling me things are all
-right. Know what I mean?"
+"I don't like those headshrinkers, they play one huge mind game. Besides, she has this patronizing way of telling me things are all right. Know what I mean?"
 
-He sat up in his chair. "No, I don't. You're the crazy one, remember?
-Sorry to cut it short but I've got to prepare. They've been cutting
-instructors again this year, listing those slated for redundancy, so I
-have to outshine my colleagues. It's a good thing you got out when you
-did, seems the whole place is succumbing to capitalists who think
-education is a business. Well, you've got enough things going on right
-now, you don't want to hear about it."
+He sat up in his chair. "No, I don't. You're the crazy one, remember? Sorry to cut it short but I've got to prepare. They've been cutting instructors again this year, listing those slated for redundancy, so I have to outshine my colleagues. It's a good thing you got out when you did, seems the whole place is succumbing to capitalists who think education is a business. Well, you've got enough things going on right now, you don't want to hear about it."
 
 I looked blankly at him. He sat back in his chair, gritting his teeth.
 
@@ -208,9 +102,7 @@ I looked blankly at him. He sat back in his chair, gritting his teeth.
 
 "No, I haven't seen or heard from them."
 
-"Good, as long as they don't know where you live. Don't tell Doc or that
-bastard Niles. She might relay the information, and he'll snitch---he's
-been jostling for a promotion once they get rid of enough of us."
+"Good, as long as they don't know where you live. Don't tell Doc or that bastard Niles. She might relay the information, and he'll snitch---he's been jostling for a promotion once they get rid of enough of us."
 
 "Okay."
 
@@ -218,53 +110,17 @@ been jostling for a promotion once they get rid of enough of us."
 
 "Okay. Thanks, Steve."
 
-He stood up to show me out, we shook hands, and I left his office. He
-called to me as I was walking down the hall.
+He stood up to show me out, we shook hands, and I left his office. He called to me as I was walking down the hall.
 
 "Give me a call, maybe I can persuade the wife to make dinner."
 
 I waved to him with my back turned.
 
-I wandered around campus for the better part of two hours. It was
-bustling with students rushing in all directions. I was thinking someone
-might remember me, but nobody did. It had been too long. I'd only taught
-two classes for a few years, spending most of my time in the lab, and I
-hadn't been that social, not even with the students. I walked by my old
-office in the Physics building, it was still vacant. I didn't have the
-mood to drop by the lab, I was certain someone would recognize me. I
-did, though, stop by one of my favorite vending machines and purchased a
-soda, drinking it rapidly on my way down the hallway.
+I wandered around campus for the better part of two hours. It was bustling with students rushing in all directions. I was thinking someone might remember me, but nobody did. It had been too long. I'd only taught two classes for a few years, spending most of my time in the lab, and I hadn't been that social, not even with the students. I walked by my old office in the Physics building, it was still vacant. I didn't have the mood to drop by the lab, I was certain someone would recognize me. I did, though, stop by one of my favorite vending machines and purchased a soda, drinking it rapidly on my way down the hallway.
 
-The library provided some comfort. I read through some foreign
-newspapers, sat in a comfortable chair, and thumbed through a Soviet-era
-treatise on nonlinear mechanics. A few chapters in, I thought to check
-my email but gave up on the idea immediately. My mind couldn't focus on
-anything, not even the interesting material in the book. I found that as
-soon as I set myself in, I was staring out the window looking at the
-unkempt grass that had expansive patches of brown and small piles of
-dirt that looked like large anthills. A class streamed out from one of
-the buildings. It must've been an elective course, they stood in a
-circle and held hands---maybe it was one of the new "psychological
-freedom" classes the university was touting. I chuckled quietly, so as
-not to draw attention to myself; I knew how easily distracted the
-undergraduates were here, none of them very motivated. It was
-frustrating trying to lecture to them on topics of quantum mechanics or
-even the basics of linear algebra. Their attention span was analogous to
-that of a dog sniffing out the nearest hedge to urinate on. Maybe that
-was why I got sick of it and had to duck out for a while; I needed some
-time to myself, to recover, to regain my senses and to find some sort of
-norm, if there ever was such a thing. And it's not like the work had
-anything to do with what happened to me, more like the inability to pass
-between this world and the one which existed in my head.
+The library provided some comfort. I read through some foreign newspapers, sat in a comfortable chair, and thumbed through a Soviet-era treatise on nonlinear mechanics. A few chapters in, I thought to check my email but gave up on the idea immediately. My mind couldn't focus on anything, not even the interesting material in the book. I found that as soon as I set myself in, I was staring out the window looking at the unkempt grass that had expansive patches of brown and small piles of dirt that looked like large anthills. A class streamed out from one of the buildings. It must've been an elective course, they stood in a circle and held hands---maybe it was one of the new "psychological freedom" classes the university was touting. I chuckled quietly, so as not to draw attention to myself; I knew how easily distracted the undergraduates were here, none of them very motivated. It was frustrating trying to lecture to them on topics of quantum mechanics or even the basics of linear algebra. Their attention span was analogous to that of a dog sniffing out the nearest hedge to urinate on. Maybe that was why I got sick of it and had to duck out for a while; I needed some time to myself, to recover, to regain my senses and to find some sort of norm, if there ever was such a thing. And it's not like the work had anything to do with what happened to me, more like the inability to pass between this world and the one which existed in my head.
 
-I slammed the book closed. I was thinking too much again. As I left the
-library, I heard a voice calling from behind me. I turned and saw that
-it was Niles. Oh shit. I took a deep breath. Niles and I went back to my
-earliest days at the university, back when I was doing my postdoc. He
-and I both worked in the same laboratory but I knew he was stealing my
-work, publishing results as if they were his own. That work caught the
-attention of the university heads and they awarded him a prize for it,
-of course leaving me completely out of it.
+I slammed the book closed. I was thinking too much again. As I left the library, I heard a voice calling from behind me. I turned and saw that it was Niles. Oh shit. I took a deep breath. Niles and I went back to my earliest days at the university, back when I was doing my postdoc. He and I both worked in the same laboratory but I knew he was stealing my work, publishing results as if they were his own. That work caught the attention of the university heads and they awarded him a prize for it, of course leaving me completely out of it.
 
 "Darrin, guy, what's happening?"
 
@@ -274,106 +130,49 @@ He offered his hand, I kept mine in my pocket.
 
 "Where are you living now? The peninsula, I hear."
 
-I stared blankly at him. "I'm not settled yet, not settled at all.
-Actually, I'm thinking about going north or maybe to Europe to pursue my
-research."
+I stared blankly at him. "I'm not settled yet, not settled at all. Actually, I'm thinking about going north or maybe to Europe to pursue my research."
 
-"Great to hear you are keeping yourself busy. The work goes well then?
-You're still doing it? I mean, in your private time?"
+"Great to hear you are keeping yourself busy. The work goes well then? You're still doing it? I mean, in your private time?"
 
 "Not really. But you know how it always persists."
 
-"Definitely. Hey, you want to grab coffee? I don't have a class for
-another hour."
+"Definitely. Hey, you want to grab coffee? I don't have a class for another hour."
 
-I frowned and shook my head. "Really, I'm sorry, but I'm very tired.
-Another time, perhaps." I turned away from him and managed a few steps
-as he continued.
+I frowned and shook my head. "Really, I'm sorry, but I'm very tired. Another time, perhaps." I turned away from him and managed a few steps as he continued.
 
-"Donalsed's been asking about you, hasn't heard from you since you left
-the hospital. You should let him know how you are."
+"Donalsed's been asking about you, hasn't heard from you since you left the hospital. You should let him know how you are."
 
-"I don't work for him, nor do I care." I continued walking in a
-quickening pace.
+"I don't work for him, nor do I care." I continued walking in a quickening pace.
 
 "Hold on," he ran to me and grabbed my arm.
 
-"He does really care about you, just like the rest of us do. Look I
-heard what happened, with the experiment and the accident. I told
-Donalsed it wasn't your fault, I said that I helped you calibrate the
-machine."
+"He does really care about you, just like the rest of us do. Look I heard what happened, with the experiment and the accident. I told Donalsed it wasn't your fault, I said that I helped you calibrate the machine."
 
 "And they didn't fire you?" I looked at him with a contorted expression.
 
-"No. They promoted me. That's how important the work is. Come back to
-the university, come back to the lab, come work again."
+"No. They promoted me. That's how important the work is. Come back to the university, come back to the lab, come work again."
 
-I shook his hand from my arm. "Not ready yet. Not now." I stared walking
-again.
+I shook his hand from my arm. "Not ready yet. Not now." I stared walking again.
 
-"It's not so easy when people think you're a genius. They know what you
-can do, they know the kind of machines you can build. They know you
-understand how to bridge this world with the quantum."
+"It's not so easy when people think you're a genius. They know what you can do, they know the kind of machines you can build. They know you understand how to bridge this world with the quantum."
 
 I started walking faster, almost running.
 
 "Just think about it. I'm here for you, man."
 
-I didn't look back. When I got to my car, I hastily opened the door and
-slumped in the seat. It was just starting to rain. I set the radio to an
-oldies station and let the music echo in my head. I whispered to myself
-over and over,
+I didn't look back. When I got to my car, I hastily opened the door and slumped in the seat. It was just starting to rain. I set the radio to an oldies station and let the music echo in my head. I whispered to myself over and over,
 
 I'm no genius. Just a regular guy. I don't know anything\...
 
-The rain came and went, then the sun came out. Evening was approaching
-and I realized I had spent at least two hours sitting in the car. The
-evening fog was rolling in, the temperature dropping; it was getting
-cold almost to the point of shivers, but I left the window down anyway.
-I couldn't command my body to move, for it might disturb the tranquil
-state I was trying to get myself in. Relax, I had to relax, the pressure
-was trying to mount me, trying to take over my mind. So they want me
-back, huh? Back to the lab. I don't think so. I've seen enough to know I
-don't want to set foot inside the place. I had thought to destroy it,
-but they had found me out too soon, before I could do any damage; they
-said I was hysterical, mumbling incoherent things about some sort of
-this and that. They said I had gone through AND come back, unlike others
-who had met with a more violent end. No matter what, I'm NOT going back.
-I pounded my fist on the steering wheel until a sharp pain stung the
-bottom of my hand. Out of the corner of my eye I could see some students
-walking by; they were watching me intently, the beady-eyed little
-bastards. Don't look over here, nothing to see.
+The rain came and went, then the sun came out. Evening was approaching and I realized I had spent at least two hours sitting in the car. The evening fog was rolling in, the temperature dropping; it was getting cold almost to the point of shivers, but I left the window down anyway. I couldn't command my body to move, for it might disturb the tranquil state I was trying to get myself in. Relax, I had to relax, the pressure was trying to mount me, trying to take over my mind. So they want me back, huh? Back to the lab. I don't think so. I've seen enough to know I don't want to set foot inside the place. I had thought to destroy it, but they had found me out too soon, before I could do any damage; they said I was hysterical, mumbling incoherent things about some sort of this and that. They said I had gone through AND come back, unlike others who had met with a more violent end. No matter what, I'm NOT going back. I pounded my fist on the steering wheel until a sharp pain stung the bottom of my hand. Out of the corner of my eye I could see some students walking by; they were watching me intently, the beady-eyed little bastards. Don't look over here, nothing to see.
 
 \* \* \* \* \*
 
-I let a month pass before I decided to call Steve. He had seemed a
-little nervous about having me in his office; he wasn't sure what to do
-with me or how I might react, of that I was sure. I had to reassure him
-that my life was better. I told him I was settling into a new house with
-good roommates, the memories of Judy were getting further behind me, and
-the work at the lab a soon-to-be lost memory, more of an annoyance than
-anything else. Things were going along just fine; I spent most of my
-days walking around the neighborhood getting my bearings, occasionally
-driving south for a friendly dinner with Marian---she had asked me since
-Frank phoned saying he couldn't make it---and reading. No more physics,
-no more mathematics, just Dostoyevsky and Kant. I find a lot of truth in
-the latter, his thoughts are pure and clear, his language cutting a
-clearing through the wilderness of man's moral turpitude. Pure reason,
-something I can latch onto. Better than the sheer melodrama that was my
-old life.
+I let a month pass before I decided to call Steve. He had seemed a little nervous about having me in his office; he wasn't sure what to do with me or how I might react, of that I was sure. I had to reassure him that my life was better. I told him I was settling into a new house with good roommates, the memories of Judy were getting further behind me, and the work at the lab a soon-to-be lost memory, more of an annoyance than anything else. Things were going along just fine; I spent most of my days walking around the neighborhood getting my bearings, occasionally driving south for a friendly dinner with Marian---she had asked me since Frank phoned saying he couldn't make it---and reading. No more physics, no more mathematics, just Dostoyevsky and Kant. I find a lot of truth in the latter, his thoughts are pure and clear, his language cutting a clearing through the wilderness of man's moral turpitude. Pure reason, something I can latch onto. Better than the sheer melodrama that was my old life.
 
-Steve's wife, Daria, answered the phone. She had been a friend of
-Judy's. She was sorry things hadn't worked out between us. I didn't
-think she knew the extent of what had happened, although Steve did. She
-invited me to dinner the next Saturday, then handed the phone to Steve.
-Judging from the hesitation in his voice, I got the impression that the
-invitation he had extended to me while at his office was purely cordial
-without any intent of it actually happening. Sort of like an extension
-of his heart that didn't sit right with his logic. Emotion got the
-better of him, as he would say.
+Steve's wife, Daria, answered the phone. She had been a friend of Judy's. She was sorry things hadn't worked out between us. I didn't think she knew the extent of what had happened, although Steve did. She invited me to dinner the next Saturday, then handed the phone to Steve. Judging from the hesitation in his voice, I got the impression that the invitation he had extended to me while at his office was purely cordial without any intent of it actually happening. Sort of like an extension of his heart that didn't sit right with his logic. Emotion got the better of him, as he would say.
 
-"Yeah, Darrin, if you are free to stop by Saturday evening, we'll see
-you about\..."
+"Yeah, Darrin, if you are free to stop by Saturday evening, we'll see you about\..."
 
 He cupped his hand over the receiver and yelled to his wife.
 
@@ -385,35 +184,25 @@ He cupped his hand over the receiver and yelled to his wife.
 
 "Okay. See you Saturday. Bye."
 
-I hung up and heard someone come in the front door. I left the kitchen
-and met Marian in the living room. She set down her purse on the coffee
-table and plopped down on the couch I had bought only a few days before.
-Since I had more money than they did, I didn't mind buying furniture.
-She smiled at me.
+I hung up and heard someone come in the front door. I left the kitchen and met Marian in the living room. She set down her purse on the coffee table and plopped down on the couch I had bought only a few days before. Since I had more money than they did, I didn't mind buying furniture. She smiled at me.
 
 "How was your day?"
 
 "The usual."
 
-"Work was hell, my boss is such a jerk. He told me yesterday there was a
-screw-up and I might be fired over it, said there were these corporate
-types coming in to investigate. Turns out there was no screw-up. The
-suits were only there to tour the office."
+"Work was hell, my boss is such a jerk. He told me yesterday there was a screw-up and I might be fired over it, said there were these corporate types coming in to investigate. Turns out there was no screw-up. The suits were only there to tour the office."
 
 I shook my head.
 
-"They say he's going to quit or be transferred or something. Hope it's
-soon. That was my day."
+"They say he's going to quit or be transferred or something. Hope it's soon. That was my day."
 
 I sat on the couch. She snapped the television on.
 
-"I hope this doesn't sound weird, Darrin. If you don't mind me asking,
-how old are you?"
+"I hope this doesn't sound weird, Darrin. If you don't mind me asking, how old are you?"
 
 "Thirty-six."
 
-"Frank and I had a bet. I thought you were twenty-seven, he thought you
-were forty or older."
+"Frank and I had a bet. I thought you were twenty-seven, he thought you were forty or older."
 
 "What a guy. Guess it's because of the white in my hair."
 
@@ -423,12 +212,9 @@ She gazed keenly at it, as if noticing it for the first time.
 
 "Why what?"
 
-Her attention was drawn to the television. "Why he thought you were
-older than you are."
+Her attention was drawn to the television. "Why he thought you were older than you are."
 
-Her eyes started to glaze over. I looked to the screen but didn't know
-what program it was. She sat up on the edge of the couch and leaned
-toward me.
+Her eyes started to glaze over. I looked to the screen but didn't know what program it was. She sat up on the edge of the couch and leaned toward me.
 
 "Do you feel like having a bowl?"
 
@@ -436,26 +222,15 @@ toward me.
 
 "You don't mind if I do, do you?"
 
-"No, go ahead." She pulled a small box from her purse which contained a
-glass pipe. It was turquoise and its edged were smoothly rounded. Thin,
-white stripes ran through it making it look glossier than it was. She
-reached under the couch and pulled out a bag which contained her
-marijuana. Using her long nails, she pinched a chunk of bud and stuffed
-it into the pipe. She watched me, as I watched her, lighting the pipe.
+"No, go ahead." She pulled a small box from her purse which contained a glass pipe. It was turquoise and its edged were smoothly rounded. Thin, white stripes ran through it making it look glossier than it was. She reached under the couch and pulled out a bag which contained her marijuana. Using her long nails, she pinched a chunk of bud and stuffed it into the pipe. She watched me, as I watched her, lighting the pipe.
 
-"I really love this stuff," she said while holding her breath. I don't
-know what I'd do without it."
+"I really love this stuff," she said while holding her breath. I don't know what I'd do without it."
 
-She exhaled slowly, the musk of smoke tickled my nostrils. Her attention
-was back at the television.
+She exhaled slowly, the musk of smoke tickled my nostrils. Her attention was back at the television.
 
-"What are we watching?" She snorted. I turned my eyes to the screen. "I
-mean what is that guy doing?" She lit the pipe again, then ashed it in a
-small cup on the coffee table. "You know..." she said, "I can see you
-are a nice guy."
+"What are we watching?" She snorted. I turned my eyes to the screen. "I mean what is that guy doing?" She lit the pipe again, then ashed it in a small cup on the coffee table. "You know..." she said, "I can see you are a nice guy."
 
-The smoke seemed to have an effect on me. I was drifting away. "Okay." I
-said not taking my eyes off the screen. She packed another bowl.
+The smoke seemed to have an effect on me. I was drifting away. "Okay." I said not taking my eyes off the screen. She packed another bowl.
 
 "Did you hear me?"
 
@@ -467,30 +242,11 @@ She laughed. Time passed.
 
 "Okay."
 
-She got up and I heard her slide into the tub some time later. The
-program ended and I casually flipped through the channels. I hated TV,
-it not only had a way of draining what was left of my brain, but also
-suppressing any new thoughts to refill it. I snapped it off and went
-into my room, leaving the door open. The new furniture in the room
-consisted of a frame for the futon, a real bookshelf, a desk, and a
-small wooden filing cabinet. I had few papers to put into the files;
-most of the writing I had done prior to my breakdown had
-disappeared---Judy had probably thrown it away. I sat at the desk and
-gazed at a pad of paper that had a few lines scribbled on it, much of
-nothing it was. I wanted to buy a typewriter, an old one, and maybe get
-back to the book I was working on before, but a non-fiction book on
-quantum physics in the realms of mysticism seemed too trite for me now.
-And owning a typewriter would be too intimidating, it would force me to
-work---the damned machine staring up at me, keys winking, stark white
-blank paper glaring. Better than writing on a computer, though.
+She got up and I heard her slide into the tub some time later. The program ended and I casually flipped through the channels. I hated TV, it not only had a way of draining what was left of my brain, but also suppressing any new thoughts to refill it. I snapped it off and went into my room, leaving the door open. The new furniture in the room consisted of a frame for the futon, a real bookshelf, a desk, and a small wooden filing cabinet. I had few papers to put into the files; most of the writing I had done prior to my breakdown had disappeared---Judy had probably thrown it away. I sat at the desk and gazed at a pad of paper that had a few lines scribbled on it, much of nothing it was. I wanted to buy a typewriter, an old one, and maybe get back to the book I was working on before, but a non-fiction book on quantum physics in the realms of mysticism seemed too trite for me now. And owning a typewriter would be too intimidating, it would force me to work---the damned machine staring up at me, keys winking, stark white blank paper glaring. Better than writing on a computer, though.
 
 "Darrin, could you come here for a minute?"
 
-I get up from my chair. I think to shut the computer down, but I figure
-Judy won't need to talk to me too long. She likes it when I walk in on
-her while she's bathing or dressing; she says she likes having my eyes
-on her, staring at her vulnerability---her breasts floating in the bath,
-nipples firm.
+I get up from my chair. I think to shut the computer down, but I figure Judy won't need to talk to me too long. She likes it when I walk in on her while she's bathing or dressing; she says she likes having my eyes on her, staring at her vulnerability---her breasts floating in the bath, nipples firm.
 
 "Do you find me attractive?"
 
@@ -506,8 +262,7 @@ nipples firm.
 
 "Darrin\..."
 
-I rubbed my eyes. The pen was in my hand; I had drawn a series of skewed
-circles on the pad.
+I rubbed my eyes. The pen was in my hand; I had drawn a series of skewed circles on the pad.
 
 "Darrin!"
 
@@ -515,13 +270,11 @@ circles on the pad.
 
 "Could you come here for a minute?"
 
-It was Marian's voice. I shook my head. I had been lost again. That
-smoke did a number on me.
+It was Marian's voice. I shook my head. I had been lost again. That smoke did a number on me.
 
 "Be right there."
 
-When I got to the bathroom, she was standing before the mirror, wrapped
-in a towel.
+When I got to the bathroom, she was standing before the mirror, wrapped in a towel.
 
 "Are you doing anything Saturday night?"
 
@@ -533,78 +286,45 @@ She combed her hair, peering through the steam on the mirror.
 
 "No, you wouldn't."
 
-"Oh, that's too bad. I was hoping we could have another nice dinner
-together, like we did on Wednesday. Frank's not going to be around."
+"Oh, that's too bad. I was hoping we could have another nice dinner together, like we did on Wednesday. Frank's not going to be around."
 
-I pulled at my lip. "Are you guys going out or something? I'm not sure
-of the situation between you two. When Frank first mentioned the living
-arrangement, he said there was another roommate, but he didn't say it
-was a girlfriend. So I don't know."
+I pulled at my lip. "Are you guys going out or something? I'm not sure of the situation between you two. When Frank first mentioned the living arrangement, he said there was another roommate, but he didn't say it was a girlfriend. So I don't know."
 
 She looked at me. "How did you meet Frank?"
 
 "I met him a couple of months ago, through a friend. Um\..."
 
-I stared into the mirror. I couldn't, for the life of me, remember who
-the friend was; in fact, I didn't remember meeting Frank at all. The
-memory of my life then seemed to be surrounded by an impassable thick
-cloud.
+I stared into the mirror. I couldn't, for the life of me, remember who the friend was; in fact, I didn't remember meeting Frank at all. The memory of my life then seemed to be surrounded by an impassable thick cloud.
 
 "What's wrong?"
 
 "I don't know where or how I met Frank."
 
-She seemed surprised and changed the subject; she went on about work
-again. I massaged my forehead, trying to think. Nothing.
+She seemed surprised and changed the subject; she went on about work again. I massaged my forehead, trying to think. Nothing.
 
 "When did *you* meet Frank?" I asked her.
 
-"We used to go out, a long time ago." She abruptly walked past me into
-her room.
+"We used to go out, a long time ago." She abruptly walked past me into her room.
 
-"But we don't get along too well, that's why I have a separate room. In
-some ways we need each other, but we agreed to go out with others,
-although he's not too fond of me doing it."
+"But we don't get along too well, that's why I have a separate room. In some ways we need each other, but we agreed to go out with others, although he's not too fond of me doing it."
 
-I turned and looked into her room. She had left the door open, and by a
-mirror on the wall, I could see her dressing. The blank, it was still
-there. It was as if the knowledge of Frank had been implanted, because I
-couldn't remember the actual experience of having met the man. I felt
-very strange and found I was starting to worry.
+I turned and looked into her room. She had left the door open, and by a mirror on the wall, I could see her dressing. The blank, it was still there. It was as if the knowledge of Frank had been implanted, because I couldn't remember the actual experience of having met the man. I felt very strange and found I was starting to worry.
 
-"That's the way it is," she came out of her room patting her head with
-the towel. "If you can't make it Saturday, maybe we can do it another
-time."
+"That's the way it is," she came out of her room patting her head with the towel. "If you can't make it Saturday, maybe we can do it another time."
 
-"Yeah, maybe...maybe in a few days or so." I was starting to get a
-headache.
+"Yeah, maybe...maybe in a few days or so." I was starting to get a headache.
 
-"Don't worry about it." She walked to me and kissed me on the cheek. I
-touched the spot, it was warm and moist from her saliva.
+"Don't worry about it." She walked to me and kissed me on the cheek. I touched the spot, it was warm and moist from her saliva.
 
-After lying in bed for nearly three hours, I managed to sleep fairly
-well, only one dream I could remember. It was of the man who first
-appeared in the coffee shop. He and I were in the lab, on the bottom
-level. The walls were made of cinder blocks, they were painted, splashed
-with black. The paint had run; it had dried in pools at the bottom of
-the wall.
+After lying in bed for nearly three hours, I managed to sleep fairly well, only one dream I could remember. It was of the man who first appeared in the coffee shop. He and I were in the lab, on the bottom level. The walls were made of cinder blocks, they were painted, splashed with black. The paint had run; it had dried in pools at the bottom of the wall.
 
 "Come on," he said to me. "I have something to show you."
 
-I followed him, down a stairway that wound around a corner. The light
-was feeble; I could barely see, but I felt as if I knew where I was
-going.
+I followed him, down a stairway that wound around a corner. The light was feeble; I could barely see, but I felt as if I knew where I was going.
 
-"This is something that will shock the hell out of the world." He
-smiled. "And fuck 'em if they don't like it. We'll shove it down their
-goddamned throats!"
+"This is something that will shock the hell out of the world." He smiled. "And fuck 'em if they don't like it. We'll shove it down their goddamned throats!"
 
-We came into a room that was expansive. There was a single light in the
-center the room, illuminating a table. On the table lay a staff mounted
-into the top of a stone pyramid. A metal ring, shaped like a zero, was
-attached to the top of the staff. There were large generators behind the
-table, and an oblong circle was drawn on the floor. I knew what it all
-meant. I backed away.
+We came into a room that was expansive. There was a single light in the center the room, illuminating a table. On the table lay a staff mounted into the top of a stone pyramid. A metal ring, shaped like a zero, was attached to the top of the staff. There were large generators behind the table, and an oblong circle was drawn on the floor. I knew what it all meant. I backed away.
 
 "Take it easy, just one more experiment and we'll be successful."
 
@@ -614,54 +334,33 @@ His green eyes glowed vibrantly, he stretched his arms out toward me.
 
 "You must\..."
 
-I shook myself from my sleep, to find daylight streaming in through my
-window. I sat up and the light of the sun caught my eyes. Alive! Alive
-again!
+I shook myself from my sleep, to find daylight streaming in through my window. I sat up and the light of the sun caught my eyes. Alive! Alive again!
 
-I went to the kitchen and put my hand on the phone. I thought of calling
-Doc; she had said if the dreams started again, I should call her. I
-could handle it. I survived. The dreams, they're vivid phantoms
-screaming through my brain, revealing the atrocities of a life gone
-un-recollected. I needed help, but not hers; she couldn't understand
-what I'd seen, how it had and will affect me and how it will all come to
-a climax where no one shall remain.
+I went to the kitchen and put my hand on the phone. I thought of calling Doc; she had said if the dreams started again, I should call her. I could handle it. I survived. The dreams, they're vivid phantoms screaming through my brain, revealing the atrocities of a life gone un-recollected. I needed help, but not hers; she couldn't understand what I'd seen, how it had and will affect me and how it will all come to a climax where no one shall remain.
 
 \* \* \* \* \*
 
-I arrived at Steve's house a few minutes after six. His wife was all
-smiles as she opened the door.
+I arrived at Steve's house a few minutes after six. His wife was all smiles as she opened the door.
 
 "Hi, Darrin. Come in."
 
-Their flat looked just as I had last seen it, over a year ago. Nothing
-had changed: same furniture, same pictures, same family. Steve and Daria
-had been married almost nine years. I felt sorry for them having to live
-in the same place all that time, without any hope of ever leaving, but
-they were so comfortable in the familiar, with no taste for the
-extraordinary. Steve greeted me in the living room.
+Their flat looked just as I had last seen it, over a year ago. Nothing had changed: same furniture, same pictures, same family. Steve and Daria had been married almost nine years. I felt sorry for them having to live in the same place all that time, without any hope of ever leaving, but they were so comfortable in the familiar, with no taste for the extraordinary. Steve greeted me in the living room.
 
-"Darrin, come with me." He grabbed me by my arm and led me into the
-hall. "I invited another guest for dinner, he says he knows you. I don't
-think you know him, but he works at the lab."
+"Darrin, come with me." He grabbed me by my arm and led me into the hall. "I invited another guest for dinner, he says he knows you. I don't think you know him, but he works at the lab."
 
 I yanked my arm away. "What?!"
 
-"Take it easy, he's only been there a year. He started right after you
-left, so he doesn't know what happened. Besides, he's a friend of mine,
-so be nice to him."
+"Take it easy, he's only been there a year. He started right after you left, so he doesn't know what happened. Besides, he's a friend of mine, so be nice to him."
 
 I let out a long, quivering breath. "Okay, okay."
 
-"He's really anxious to meet you. I talked to him after I saw you on
-campus. I thought since you were going to be here, you wouldn't mind
-meeting him."
+"He's really anxious to meet you. I talked to him after I saw you on campus. I thought since you were going to be here, you wouldn't mind meeting him."
 
 "Yeah, I'll deal with it."
 
 "Splendid."
 
-He led me into the kitchen. He looked at his wife, who was putting the
-finishing touches on dinner.
+He led me into the kitchen. He looked at his wife, who was putting the finishing touches on dinner.
 
 "Where's Sam?"
 
@@ -671,94 +370,63 @@ finishing touches on dinner.
 
 "No, thanks."
 
-I went and sat on the couch. There was a loose string of fabric on the
-arm; I tugged at it. There were sudden voices in the kitchen, one I
-thought I faintly recognized, neither Steve nor Daria, still familiar,
-from somewhere distant, like a voice carried on the wind. Then he came
-in.
+I went and sat on the couch. There was a loose string of fabric on the arm; I tugged at it. There were sudden voices in the kitchen, one I thought I faintly recognized, neither Steve nor Daria, still familiar, from somewhere distant, like a voice carried on the wind. Then he came in.
 
-He was tall, thin, his skin dark and his hair jet black. His eyes were a
-deep hazel, almost glowing; his pants were olive, his shirt black,
-buttoned to the top. I knew him in an instant. He was the man in the
-coffee shop dream and in the lab dream. I stared, frozen, with my eyes
-wide and my mouth open. He smirked and gave me a perplexed look.
+He was tall, thin, his skin dark and his hair jet black. His eyes were a deep hazel, almost glowing; his pants were olive, his shirt black, buttoned to the top. I knew him in an instant. He was the man in the coffee shop dream and in the lab dream. I stared, frozen, with my eyes wide and my mouth open. He smirked and gave me a perplexed look.
 
 "Darrin?"
 
-His voice was exactly the same, down to the intonations, pitch, accent,
-and pronunciation. I couldn't conjure a word or gesture to acknowledge
-him. He walked over and stood next to me.
+His voice was exactly the same, down to the intonations, pitch, accent, and pronunciation. I couldn't conjure a word or gesture to acknowledge him. He walked over and stood next to me.
 
 "I'm Uncler, Sam Uncler."
 
-He extended his hand, and after a minute or so, I followed. My palms
-were wet. After we released, he looked at his hand, then at me.
+He extended his hand, and after a minute or so, I followed. My palms were wet. After we released, he looked at his hand, then at me.
 
 "A little nervous, are we?"
 
 He sat next to me.
 
-"I've heard a lot about you back at the lab, you're quite a celebrity,
-famous I might put it, been following your work. Now I have the ultimate
-pleasure of meeting you, the genius behind it all."
+"I've heard a lot about you back at the lab, you're quite a celebrity, famous I might put it, been following your work. Now I have the ultimate pleasure of meeting you, the genius behind it all."
 
-I flashed a facetious grin at him. He pulled out a cigarette and put it
-into his mouth.
+I flashed a facetious grin at him. He pulled out a cigarette and put it into his mouth.
 
 "Smoke?"
 
 "I quit."
 
-"Oh," he searched his pants and shirt pocket. "I hate it when that
-happens, I lost my lighter. Excuse me."
+"Oh," he searched his pants and shirt pocket. "I hate it when that happens, I lost my lighter. Excuse me."
 
-He quickly got up and went into the kitchen. He walked over to the
-stove---I watched his every move as if anticipating the dreams to
-recur---he looked back at me and smiled. He flicked on the gas burner
-and bent over it, extending the cigarette over the flame. He looked at
-me again. I was still staring. He lifted the corner of his mouth as if
-to silently say something.
+He quickly got up and went into the kitchen. He walked over to the stove---I watched his every move as if anticipating the dreams to recur---he looked back at me and smiled. He flicked on the gas burner and bent over it, extending the cigarette over the flame. He looked at me again. I was still staring. He lifted the corner of his mouth as if to silently say something.
 
 "Sam!" Daria yelled.
 
 "Sam, if you needed a light, I have one." Steve said.
 
-"I got it. You have an ashtray? I don't want ruin your couch. And I have
-your guest to talk to."
+"I got it. You have an ashtray? I don't want ruin your couch. And I have your guest to talk to."
 
-He returned and sat next to me again---this time closer. He had a faint
-scent of cologne on him.
+He returned and sat next to me again---this time closer. He had a faint scent of cologne on him.
 
-"Sanderson's a great guy, all manners and British etiquette, Daria too.
-But you can't know two better people. Don't you think so?"
+"Sanderson's a great guy, all manners and British etiquette, Daria too. But you can't know two better people. Don't you think so?"
 
 I resumed tugging the loose string on the arm.
 
-"She's making her specialty, Veal Parmesan, my favorite. Nothing like
-eating sick young cows. Makes you feel really alive, eating the
-misfortunes of those lesser than you. Superior, that's the word I'm
-looking for, makes me feel superior."
+"She's making her specialty, Veal Parmesan, my favorite. Nothing like eating sick young cows. Makes you feel really alive, eating the misfortunes of those lesser than you. Superior, that's the word I'm looking for, makes me feel superior."
 
 "Yeah."
 
-He was suddenly quiet. I could hear him taking long draws on the
-cigarette.
+He was suddenly quiet. I could hear him taking long draws on the cigarette.
 
 "You don't say much, do you?" He said without looking at me.
 
 I turned and gave him a surprised look. "What?"
 
-"Silence, the absence of speech. You seem to have cornered the market on
-it."
+"Silence, the absence of speech. You seem to have cornered the market on it."
 
-Daria dropped something in the kitchen. I looked up to see Steve running
-to her. Uncler was smiling, almost sadistically.
+Daria dropped something in the kitchen. I looked up to see Steve running to her. Uncler was smiling, almost sadistically.
 
-"She might need some help\..." I started to get up. He put his hand on
-my leg.
+"She might need some help\..." I started to get up. He put his hand on my leg.
 
-"She's a big girl, she can handle it. Besides, that's what the husband's
-for. Don't worry about it."
+"She's a big girl, she can handle it. Besides, that's what the husband's for. Don't worry about it."
 
 I sat back down slowly, eyed his hand on me; he retracted it.
 
@@ -770,24 +438,11 @@ I sat back down slowly, eyed his hand on me; he retracted it.
 
 I glared hard at him.
 
-"I've read it several times, you know, had to. Donalsed, Niles,
-Sanderson\--they all say you're dangerous, could go off at any second,
-like a powder keg, boom!" He made the motion with his hands. "But they
-insist despite that you're an absolute genius. To me you just seem a
-little edgy, but that's all---uncomfortable around strangers,
-anti-social and all that. I can understand. Ah, don't worry about it,
-I'm the same, it's the damn work at the lab. Can drive you up the wall,
-if you know what I mean, but I think you already do. That's what the
-profile says, but my curiosity got the best of me, I had to see for
-myself. But you don't strike me as the murderous type, not at all, you
-seem perfectly passive sitting in your little corner of the couch
-pulling on that damn thread. Perfectly passive."
+"I've read it several times, you know, had to. Donalsed, Niles, Sanderson--they all say you're dangerous, could go off at any second, like a powder keg, boom!" He made the motion with his hands. "But they insist despite that you're an absolute genius. To me you just seem a little edgy, but that's all---uncomfortable around strangers, anti-social and all that. I can understand. Ah, don't worry about it, I'm the same, it's the damn work at the lab. Can drive you up the wall, if you know what I mean, but I think you already do. That's what the profile says, but my curiosity got the best of me, I had to see for myself. But you don't strike me as the murderous type, not at all, you seem perfectly passive sitting in your little corner of the couch pulling on that damn thread. Perfectly passive."
 
 I looked blankly at him.
 
-"Yes, your defense mechanism. Pretend you know nothing, good idea, it
-works for me, especially as far as the government's concerned, but I'm
-not here to talk politics."
+"Yes, your defense mechanism. Pretend you know nothing, good idea, it works for me, especially as far as the government's concerned, but I'm not here to talk politics."
 
 "What are you here to talk about?"
 
@@ -795,75 +450,45 @@ not here to talk politics."
 
 Another blank expression. He shook his head.
 
-"You're the man behind the Cipher Experiment, the brain of the
-operation---I've spent the last year intently studying your work. I
-wanted to meet you sooner, but they wouldn't allow me to see you at the
-hospital."
+"You're the man behind the Cipher Experiment, the brain of the operation---I've spent the last year intently studying your work. I wanted to meet you sooner, but they wouldn't allow me to see you at the hospital."
 
 Another blank expression.
 
-"This is how we're going to play it, huh? Fine, don't say anything if
-you don't want to. Hell, you probably don't remember any of it, anyway.
-The profile says you're a vegetable up here," he tapped the side of his
-head with his finger, "and maybe they're right, who knows? Only you do."
+"This is how we're going to play it, huh? Fine, don't say anything if you don't want to. Hell, you probably don't remember any of it, anyway. The profile says you're a vegetable up here," he tapped the side of his head with his finger, "and maybe they're right, who knows? Only you do."
 
-He pulled at his lip; the cigarette burned between his fingers, smoke
-gently curled away. He took a long drag and snuffed it out in the
-ashtray on the end table. His gaze fixed with mine.
+He pulled at his lip; the cigarette burned between his fingers, smoke gently curled away. He took a long drag and snuffed it out in the ashtray on the end table. His gaze fixed with mine.
 
-I get the distinct impression that you think you know me, but can't
-place the face."
+I get the distinct impression that you think you know me, but can't place the face."
 
 "Maybe."
 
-"No bullshit. This is the first time I met you. Well, in person anyway,
-your reputation precedes you, you ought to be proud."
+"No bullshit. This is the first time I met you. Well, in person anyway, your reputation precedes you, you ought to be proud."
 
-"Really." I looked at the string again. The temptation was too great; I
-started tugging at it---he noticed.
+"Really." I looked at the string again. The temptation was too great; I started tugging at it---he noticed.
 
-"Look," he moved closer, put his hand on my leg again; he brought his
-face close to the side of my head. I felt his breath on my neck. "I know
-what happened at the lab."
+"Look," he moved closer, put his hand on my leg again; he brought his face close to the side of my head. I felt his breath on my neck. "I know what happened at the lab."
 
-I snapped my head around and faced him. "You don't know anything." I
-relaxed and turned back to the string. "Don't know anything at all."
+I snapped my head around and faced him. "You don't know anything." I relaxed and turned back to the string. "Don't know anything at all."
 
-"Is that what you think? If so, you have grossly underestimated me." He
-eyed my progress at nearly pulling the entire thread out. "But I do know
-one thing for certain, if you tear Sanderson's couch apart, he'll be
-upset about it."
+"Is that what you think? If so, you have grossly underestimated me." He eyed my progress at nearly pulling the entire thread out. "But I do know one thing for certain, if you tear Sanderson's couch apart, he'll be upset about it."
 
 I cracked a smile. Steve walked into the living room.
 
 "Dinner's ready."
 
-Uncler and I exchanged glances, simultaneously got up, and walked toward
-the kitchen. He stopped me.
+Uncler and I exchanged glances, simultaneously got up, and walked toward the kitchen. He stopped me.
 
 "Let's try to be friends and we'll go from there, okay?"
 
-I nodded, and sat at the table; a plate had already been prepared for
-me. The veal was breaded, a thin tomato sauce covering it, a piece of
-cheese swimming in all of it---maybe floating. A bowl of noodles was
-beside the plate; they were cooked, but had no sauce. I wasn't sure if I
-was supposed to pour the noodles over the plate, or scoop pieces of veal
-and soup into the bowl. I decided to wait and see what everybody else
-did. Uncler looked at me and smiled; he unfolded the napkin and placed
-it in his lap. I did the same, he nodded.
+I nodded, and sat at the table; a plate had already been prepared for me. The veal was breaded, a thin tomato sauce covering it, a piece of cheese swimming in all of it---maybe floating. A bowl of noodles was beside the plate; they were cooked, but had no sauce. I wasn't sure if I was supposed to pour the noodles over the plate, or scoop pieces of veal and soup into the bowl. I decided to wait and see what everybody else did. Uncler looked at me and smiled; he unfolded the napkin and placed it in his lap. I did the same, he nodded.
 
-"Sanderson." He stood up with a glass of red wine. "A toast, to Darrin.
-May this be the first day to lead to the rest of his life."
+"Sanderson." He stood up with a glass of red wine. "A toast, to Darrin. May this be the first day to lead to the rest of his life."
 
-"Here, here." Steve and Daria raised their glasses. I had no wine, only
-water. I gripped my hand around the plastic cup and lifted it.
+"Here, here." Steve and Daria raised their glasses. I had no wine, only water. I gripped my hand around the plastic cup and lifted it.
 
-"Great." Uncler drank deeply from his glass, then sat back down. No more
-words or glances were exchanged, and the rest of the meal was taken in
-silence.
+"Great." Uncler drank deeply from his glass, then sat back down. No more words or glances were exchanged, and the rest of the meal was taken in silence.
 
-I arrived home close to eleven; Marian was up watching television. Frank
-was nowhere to be found.
+I arrived home close to eleven; Marian was up watching television. Frank was nowhere to be found.
 
 "How was your dinner?"
 
@@ -877,28 +502,17 @@ She laughed. "Yeah, right."
 
 "By the way, where is he?"
 
-"I don't know, he wasn't here when I came home, probably out with his
-white-trash friends. Out drinking beer, belching, farting, you know, all
-that male bonding nonsense."
+"I don't know, he wasn't here when I came home, probably out with his white-trash friends. Out drinking beer, belching, farting, you know, all that male bonding nonsense."
 
-I laughed and started to walk to my room. I thought of asking her about
-Samuel Uncler, but there was no way she could possibly know him. A
-nagging feeling told me to ask anyway, but I ignored it.
+I laughed and started to walk to my room. I thought of asking her about Samuel Uncler, but there was no way she could possibly know him. A nagging feeling told me to ask anyway, but I ignored it.
 
 I got to my door and she yelled down the hall.
 
 "What are you going to do?"
 
-"Settle down and read, I think. Not much else to do. Too early to
-sleep."
+"Settle down and read, I think. Not much else to do. Too early to sleep."
 
-There was silence, and I went to my room. The futon was comfortable. The
-room was warm from the heat of the day; I threw the window open and lay
-down. I had books, a lot of books, most of them unread. They had looked
-good in the bookstore; I'd bought them because they seemed interesting.
-Maybe someday I would like to read a particular author, and when I did,
-I didn't want to have to go through the agony of not having their work
-on hand.
+There was silence, and I went to my room. The futon was comfortable. The room was warm from the heat of the day; I threw the window open and lay down. I had books, a lot of books, most of them unread. They had looked good in the bookstore; I'd bought them because they seemed interesting. Maybe someday I would like to read a particular author, and when I did, I didn't want to have to go through the agony of not having their work on hand.
 
 I must've dozed off, a knock on my door startled me.
 
@@ -908,8 +522,7 @@ I looked at the clock. It was well after one.
 
 "Yeah, I'm awake. Come in."
 
-She threw the door open and knelt on the bed. "I thought I heard
-something downstairs."
+She threw the door open and knelt on the bed. "I thought I heard something downstairs."
 
 I rubbed my eyes and yawned. "We don't have a downstairs."
 
@@ -917,22 +530,17 @@ I rubbed my eyes and yawned. "We don't have a downstairs."
 
 "A cellar?"
 
-"Come on." She pulled me off the bed and onto my feet. I followed her
-through the kitchen to the patio door in the back. She opened the door a
-crack.
+"Come on." She pulled me off the bed and onto my feet. I followed her through the kitchen to the patio door in the back. She opened the door a crack.
 
 "Listen, do you hear that?"
 
-I looked around the yard, to the wooden fence that enclosed the grounds.
-There wasn't a sound.
+I looked around the yard, to the wooden fence that enclosed the grounds. There wasn't a sound.
 
 "I don't hear\..."
 
 "Shhh\..."
 
-There was an indistinguishable sound of something crying. It was coming
-from under the wooden stairs below the patio door. Faint scratching
-echoed. She grabbed my arm.
+There was an indistinguishable sound of something crying. It was coming from under the wooden stairs below the patio door. Faint scratching echoed. She grabbed my arm.
 
 "What is it?" She whimpered.
 
@@ -940,154 +548,87 @@ echoed. She grabbed my arm.
 
 "Yeah, lift the stairs."
 
-I went to a drawer and got a flashlight. Marian shrunk back and sat in a
-chair; her voice was quivering from fear.
+I went to a drawer and got a flashlight. Marian shrunk back and sat in a chair; her voice was quivering from fear.
 
 "Oh, shit\..."
 
-There was more crying and scratching, now more fiercely. It sounded like
-someone or something was trapped in the cellar. I rifled through another
-drawer and pulled out a steak knife. I didn't know what good it would
-do, but it gave me a small amount of security.
+There was more crying and scratching, now more fiercely. It sounded like someone or something was trapped in the cellar. I rifled through another drawer and pulled out a steak knife. I didn't know what good it would do, but it gave me a small amount of security.
 
-It was dark outside---no light from the front of the house would
-illuminate the back---I flicked the switch for the kitchen light, but it
-was burned out.
+It was dark outside---no light from the front of the house would illuminate the back---I flicked the switch for the kitchen light, but it was burned out.
 
 "Go to my room and turn on the light."
 
-It did little good, it only cast shadows, since the cellar was around
-the corner from my room. Although I stepped as lightly as I could on the
-stairs, they creaked from my weight. The crying ceased. I stood before
-the stairs and placed my fingers under the edge of them; I looked at
-Marian.
+It did little good, it only cast shadows, since the cellar was around the corner from my room. Although I stepped as lightly as I could on the stairs, they creaked from my weight. The crying ceased. I stood before the stairs and placed my fingers under the edge of them; I looked at Marian.
 
-"Straight up," she whispered and gestured with her hands. I quickly
-pulled and the whole unit lifted up, hitting the wall hard and coming to
-a rest. The crying began again; it came in soft long cries and short
-sobs. My hands were shaking, making the light bob before me. I clutched
-the knife tightly.
+"Straight up," she whispered and gestured with her hands. I quickly pulled and the whole unit lifted up, hitting the wall hard and coming to a rest. The crying began again; it came in soft long cries and short sobs. My hands were shaking, making the light bob before me. I clutched the knife tightly.
 
-Setting a foot on the first concrete stair, I started my descent. I had
-to duck, and I noticed the stairs curved around to the left.
+Setting a foot on the first concrete stair, I started my descent. I had to duck, and I noticed the stairs curved around to the left.
 
-"Great." I couldn't see the cellar without first rounding the narrow
-corner. I crept slowly, moving with the pitch of the cries---my
-instincts had taken over. I reached the corner and, shining the
-flashlight around it, peered into the depths of the cellar. The walls
-were painted black; the floor was moist, small patches of fungi growing
-out of the cracks. The walls were constructed of cinder blocks. I shined
-the light around and noticed it was silent. The room was small, not more
-than eight meters square. I couldn't see anything, so I continued down
-the remaining three stairs. I was standing on the floor, my footing
-unsure; I found I was standing in a patch of fungi, the moisture soaking
-my socks. There was a water heater in one corner, a series of pipes
-overhead, and junk in another corner. A small, overturned wooden box lay
-behind the water heater, a piece of plywood leaning against it.
+"Great." I couldn't see the cellar without first rounding the narrow corner. I crept slowly, moving with the pitch of the cries---my instincts had taken over. I reached the corner and, shining the flashlight around it, peered into the depths of the cellar. The walls were painted black; the floor was moist, small patches of fungi growing out of the cracks. The walls were constructed of cinder blocks. I shined the light around and noticed it was silent. The room was small, not more than eight meters square. I couldn't see anything, so I continued down the remaining three stairs. I was standing on the floor, my footing unsure; I found I was standing in a patch of fungi, the moisture soaking my socks. There was a water heater in one corner, a series of pipes overhead, and junk in another corner. A small, overturned wooden box lay behind the water heater, a piece of plywood leaning against it.
 
 The light went out.
 
 "Great."
 
-I shook the flashlight as hard as I could, but it didn't respond. I
-looked behind me. I was in pitch-blackness.
+I shook the flashlight as hard as I could, but it didn't respond. I looked behind me. I was in pitch-blackness.
 
 "Need a light?"
 
 I freeze. It's a familiar voice---too familiar.
 
-A feeble light glows, increasing until I can see. Uncler is standing in
-the center of the room, holding a staff with an oblong-shaped piece of
-metal mounted to the top of it. His olive drab suit is electric; his
-hazel eyes shine emerald green. He has a wide grin on his face.
+A feeble light glows, increasing until I can see. Uncler is standing in the center of the room, holding a staff with an oblong-shaped piece of metal mounted to the top of it. His olive drab suit is electric; his hazel eyes shine emerald green. He has a wide grin on his face.
 
-"Tired of the world bothering you, Darrin? Tired of them crying to you
-when they have problems? Tired of being blamed for everything? Even
-tired of getting all the credit?"
+"Tired of the world bothering you, Darrin? Tired of them crying to you when they have problems? Tired of being blamed for everything? Even tired of getting all the credit?"
 
-He extends his arm out and points to the wall. He turns the staff,
-illuminating the black blocks. Judy is chained to them. The handcuffs
-and length of chain holding her drip rust. She is struggling to get
-away; she is gagged, whimpering long, soft cries and short sobs.
+He extends his arm out and points to the wall. He turns the staff, illuminating the black blocks. Judy is chained to them. The handcuffs and length of chain holding her drip rust. She is struggling to get away; she is gagged, whimpering long, soft cries and short sobs.
 
-"We did it once a short year ago, nothing's stopping us from doing it
-again."
+"We did it once a short year ago, nothing's stopping us from doing it again."
 
-He grips the staff tighter, and the light from the cipher glows to a
-blinding glare; a soft hum emanates. In the corner where I had seen the
-water heater, there is a generator; it is rocking violently, pumping out
-juice.
+He grips the staff tighter, and the light from the cipher glows to a blinding glare; a soft hum emanates. In the corner where I had seen the water heater, there is a generator; it is rocking violently, pumping out juice.
 
-"So many places to see, so many people to meet." He looks at me and
-extends his hand. "Come with me."
+"So many places to see, so many people to meet." He looks at me and extends his hand. "Come with me."
 
-I shake my head, my mouth open, drool trickling down the front of my
-shirt. He focuses on Judy; she is hysterically flailing herself,
-desperately trying to get loose from the bonds that hold her to the
-wall. Uncler leans the staff towards her; a flash of current comes out
-of the generator, and a rod of light shoots through the cipher. It
-penetrates Judy, she screams. The sound echoes in my brain.
+I shake my head, my mouth open, drool trickling down the front of my shirt. He focuses on Judy; she is hysterically flailing herself, desperately trying to get loose from the bonds that hold her to the wall. Uncler leans the staff towards her; a flash of current comes out of the generator, and a rod of light shoots through the cipher. It penetrates Judy, she screams. The sound echoes in my brain.
 
 "Darrin! Darrin!!"
 
-I felt someone shaking me in the darkness of my mind. My back was moist,
-my skin saturated. I was too fear-stricken to open my eyes.
+I felt someone shaking me in the darkness of my mind. My back was moist, my skin saturated. I was too fear-stricken to open my eyes.
 
 "Darrin, can you hear me?!"
 
-The shaking: my head fell back and forth, striking the concrete. Slowly,
-slowly, fear dissipated and I wedged my eyes open. I saw Marian staring
-down at me.
+The shaking: my head fell back and forth, striking the concrete. Slowly, slowly, fear dissipated and I wedged my eyes open. I saw Marian staring down at me.
 
-"What the hell happened? First thing I know is you go around the corner,
-then the light goes out, I hear you scuffle with something, then
-nothing."
+"What the hell happened? First thing I know is you go around the corner, then the light goes out, I hear you scuffle with something, then nothing."
 
-She lifted me up and sat me on the bottom stair. She turned my face
-toward hers; dried foam was glued to my chin, and drool covered the
-front of my shirt.
+She lifted me up and sat me on the bottom stair. She turned my face toward hers; dried foam was glued to my chin, and drool covered the front of my shirt.
 
 "Oh my God, I didn't know you were epileptic."
 
-I was regaining my senses, able to sit myself up. She took off her shirt
-and patted my face with it; she wiped away the grime, trying to clean me
-up.
+I was regaining my senses, able to sit myself up. She took off her shirt and patted my face with it; she wiped away the grime, trying to clean me up.
 
 "Jesus, I had no idea."
 
-The cry. I heard it again, like a far off echo of Judy screaming---I
-could see her body contorting, head twisting into odd shapes, face
-deformed, red hair falling out in large clumps. The cry---I heard
-it---is seared into my sickened soul.
+The cry. I heard it again, like a far off echo of Judy screaming---I could see her body contorting, head twisting into odd shapes, face deformed, red hair falling out in large clumps. The cry---I heard it---is seared into my sickened soul.
 
 "What the\..."
 
-Marian looked behind her, gripped the flashlight, and shined the beam
-into the corner. From behind the water heater, a cat slunk out. It cried
-sharply, then mewed softly. It's coat was fire-orange.
+Marian looked behind her, gripped the flashlight, and shined the beam into the corner. From behind the water heater, a cat slunk out. It cried sharply, then mewed softly. It's coat was fire-orange.
 
-"Oh," she set the light down and picked up the cat. It purred in her
-arms and looked intently at me. It meowed.
+"Oh," she set the light down and picked up the cat. It purred in her arms and looked intently at me. It meowed.
 
 "You must be hungry, huh?"
 
-Her attention was focused on the cat. All of a sudden, she realized I
-was still incapacitated on the stairs.
+Her attention was focused on the cat. All of a sudden, she realized I was still incapacitated on the stairs.
 
-"I'm so sorry, are you okay?" She knelt and looked into my eyes,
-searching for something.
+"I'm so sorry, are you okay?" She knelt and looked into my eyes, searching for something.
 
 "I'll be all right. I told you it was a cat."
 
-I had her shirt in my hand. She had only her bra on, the cat tucked next
-to her small breasts.
+I had her shirt in my hand. She had only her bra on, the cat tucked next to her small breasts.
 
 "I'll be fine."
 
-I showered. It was a long one, must have been an hour. The hot water
-relaxed my frazzled nerves. I put on my robe, went to the living room,
-and sat down; my head ached. Marian went to feed the cat in the kitchen.
-She opened a can of tuna; the animal purred loudly between bites.
+I showered. It was a long one, must have been an hour. The hot water relaxed my frazzled nerves. I put on my robe, went to the living room, and sat down; my head ached. Marian went to feed the cat in the kitchen. She opened a can of tuna; the animal purred loudly between bites.
 
 "Marian." I had to call her twice.
 
@@ -1099,14 +640,7 @@ She opened a can of tuna; the animal purred loudly between bites.
 
 "I don't. But I *need* one."
 
-I inhaled as deeply as I could. The first time I coughed violently; the
-second, less so; the third, even less; finally I got the knack of it and
-my body stopped reacting. I shut the light off and sat in the dark,
-watching the ember from the cigarette glow brightly. It relaxed me. I
-heard Marian coming down the hall. She opened the door, closed it, and
-sat down next to me; she had put on a bluish, flowered sweater. She lit
-a cigarette and we smoked together; I felt at peace and wondered why I
-had quit in the first place.
+I inhaled as deeply as I could. The first time I coughed violently; the second, less so; the third, even less; finally I got the knack of it and my body stopped reacting. I shut the light off and sat in the dark, watching the ember from the cigarette glow brightly. It relaxed me. I heard Marian coming down the hall. She opened the door, closed it, and sat down next to me; she had put on a bluish, flowered sweater. She lit a cigarette and we smoked together; I felt at peace and wondered why I had quit in the first place.
 
 "You okay?"
 
@@ -1118,71 +652,43 @@ had quit in the first place.
 
 "Does it happen often? Do you have any medication for it?"
 
-"No. And I haven't been taking it lately---I find it depresses me too
-much, and I already feel too tired."
+"No. And I haven't been taking it lately---I find it depresses me too much, and I already feel too tired."
 
 "I won't tell Frank. It'll be our little secret."
 
 I chuckled. "Thanks."
 
-"Besides, he doesn't deserve to know. He'd think you were a retard or
-something."
+"Besides, he doesn't deserve to know. He'd think you were a retard or something."
 
-I looked out the window. A car slowed before the house; Marian stared at
-it until it took off.
+I looked out the window. A car slowed before the house; Marian stared at it until it took off.
 
-"Probably one of his friends looking to party. Glad you turned out the
-light."
+"Probably one of his friends looking to party. Glad you turned out the light."
 
 The cigarette tasted good.
 
-She quickly exhaled smoke. "He's so chicken-shit, he never would have
-gone down there." She affected a playful tone. "You're so brave."
+She quickly exhaled smoke. "He's so chicken-shit, he never would have gone down there." She affected a playful tone. "You're so brave."
 
-I extinguished the cigarette and leaned back---she followed. She ran her
-fingers through my hair---I responded.
+I extinguished the cigarette and leaned back---she followed. She ran her fingers through my hair---I responded.
 
 "That feels nice."
 
-She rubbed the back of my neck, leaned over and kissed my ear. "So
-brave."
+She rubbed the back of my neck, leaned over and kissed my ear. "So brave."
 
-I kissed her on the lips, they were soft and warm. She pulled back and
-looked at me, trying to figure out why I had done it. She shook her
-head, then kissed me, her tongue probing my mouth.
+I kissed her on the lips, they were soft and warm. She pulled back and looked at me, trying to figure out why I had done it. She shook her head, then kissed me, her tongue probing my mouth.
 
-"I have an idea," she said between kisses. "How about a back rub? I
-think you could use it."
+"I have an idea," she said between kisses. "How about a back rub? I think you could use it."
 
 "Sounds wonderful."
 
-I led her to my room. I lay on the futon; she straddled me and worked at
-my back. There were many knots, a lot of tension; if she only knew.
+I led her to my room. I lay on the futon; she straddled me and worked at my back. There were many knots, a lot of tension; if she only knew.
 
-I woke late the next morning with a splitting headache and despair in my
-heart. I felt as if I'd had dreams during the night---so many, in fact,
-they had left my body weak; my hand quivered as I went to pull up the
-window shade. It occurred to me that Marian had gone. In my groggy state
-I hadn't realized she'd left. I sat against the wall, then I noticed I
-was naked---I never slept without clothes. I found myself in a state of
-panic, remembering nothing save the back rub. Had I actually screwed my
-roommate? This was not a good way to develop platonic relations. Why
-couldn't I remember? I tugged at my lip and looked around the room for a
-sign as to what might have happened; everything appeared normal,
-although a little scattered, as if somebody had torn around.
+I woke late the next morning with a splitting headache and despair in my heart. I felt as if I'd had dreams during the night---so many, in fact, they had left my body weak; my hand quivered as I went to pull up the window shade. It occurred to me that Marian had gone. In my groggy state I hadn't realized she'd left. I sat against the wall, then I noticed I was naked---I never slept without clothes. I found myself in a state of panic, remembering nothing save the back rub. Had I actually screwed my roommate? This was not a good way to develop platonic relations. Why couldn't I remember? I tugged at my lip and looked around the room for a sign as to what might have happened; everything appeared normal, although a little scattered, as if somebody had torn around.
 
-The clock next to the bed read eleven-thirty. I found two cigarettes and
-a small note tied together with a string. I read the note.
+The clock next to the bed read eleven-thirty. I found two cigarettes and a small note tied together with a string. I read the note.
 
 "Relief for my rehabilitating roommate."
 
-I smoked them back to back; if I'd had a whole pack I would've kept
-smoking until I had finished it. Doc had warned me that as soon as the
-dreams started, I would be experiencing blackouts again; she had said
-because of the mild epilepsy and the trauma I had endured at the lab, it
-would only encourage repeats in the future. I reached for the phone to
-call her. I had to dial three times before I would let the line connect,
-and even then I had to force myself to ask for her.
+I smoked them back to back; if I'd had a whole pack I would've kept smoking until I had finished it. Doc had warned me that as soon as the dreams started, I would be experiencing blackouts again; she had said because of the mild epilepsy and the trauma I had endured at the lab, it would only encourage repeats in the future. I reached for the phone to call her. I had to dial three times before I would let the line connect, and even then I had to force myself to ask for her.
 
 "Darrin, I haven't heard from you. I've been concerned."
 
@@ -1196,9 +702,7 @@ and even then I had to force myself to ask for her.
 
 "Yeah, just last night. Word travels fast."
 
-"He's worried about you. He phoned this morning and said I should have
-you come in to see me," she laughed. "I don't mean it like that. I like
-it when you keep in touch with me."
+"He's worried about you. He phoned this morning and said I should have you come in to see me," she laughed. "I don't mean it like that. I like it when you keep in touch with me."
 
 Immediately, I noticed she had that patronizing tone again.
 
@@ -1208,8 +712,7 @@ Immediately, I noticed she had that patronizing tone again.
 
 "Would you like to come by and talk about it?"
 
-I thought of saying yes, but something held me back. I let the silence
-drone on.
+I thought of saying yes, but something held me back. I let the silence drone on.
 
 "Darrin?"
 
@@ -1227,29 +730,15 @@ drone on.
 
 "I'll see you at three. Good-bye."
 
-I hung up on her. Something was going on and I knew I was not being
-paranoid---a definite plan was in the works. I wandered around the
-house, got dressed, had a glass of milk, and sat at the table. I noticed
-the stairs to the cellar were still up. I paced to the patio door,
-opened it a crack, and gave the stairs a good shove---they crashed onto
-the concrete with a resounding thud.
+I hung up on her. Something was going on and I knew I was not being paranoid---a definite plan was in the works. I wandered around the house, got dressed, had a glass of milk, and sat at the table. I noticed the stairs to the cellar were still up. I paced to the patio door, opened it a crack, and gave the stairs a good shove---they crashed onto the concrete with a resounding thud.
 
-There were two messages on the machine, both were for Marian. I saved
-them.
+There were two messages on the machine, both were for Marian. I saved them.
 
-I sat on the couch and turned on the television; nothing much was on.
-Over the low volume, I could hear the cat we'd found in the cellar
-gently scratching the inside of Marian's door; it mewed softly. I
-thought of letting it out and allowing it to run free through the house.
-I ignored it and returned to the television.
+I sat on the couch and turned on the television; nothing much was on. Over the low volume, I could hear the cat we'd found in the cellar gently scratching the inside of Marian's door; it mewed softly. I thought of letting it out and allowing it to run free through the house. I ignored it and returned to the television.
 
-At three I was at Doc's office. I had to wait for her in a pallid room
-adorned with framed lithographs of Austrian landscapes. The secretary
-gave me a peculiar glance; I thought to mimic her, but didn't. I wished
-to smoke, but had no cigarettes.
+At three I was at Doc's office. I had to wait for her in a pallid room adorned with framed lithographs of Austrian landscapes. The secretary gave me a peculiar glance; I thought to mimic her, but didn't. I wished to smoke, but had no cigarettes.
 
-Doc walked in at three-thirty. She offered me the couch; I opted for the
-chair---it seemed more ironic. She sat behind her desk, opening my file.
+Doc walked in at three-thirty. She offered me the couch; I opted for the chair---it seemed more ironic. She sat behind her desk, opening my file.
 
 "How are you doing, Darrin?"
 
@@ -1273,49 +762,31 @@ I rubbed my forehead, a headache was coming on.
 
 "The dreams...they've started again."
 
-She leaned back in her office chair. "I knew they let you go too soon. I
-told them you hadn't fully recovered." She was angry. "Darrin," she got
-up and held my hand. "Would you like to go back to the hospital?" I
-looked into her eyes and realized her expression was patronizing, as if
-she only cared about my well-being because she was being paid to see to
-it. Like a demon that had been awakened, rage built within me. I
-mimicked her patronizing gaze and tone.
+She leaned back in her office chair. "I knew they let you go too soon. I told them you hadn't fully recovered." She was angry. "Darrin," she got up and held my hand. "Would you like to go back to the hospital?" I looked into her eyes and realized her expression was patronizing, as if she only cared about my well-being because she was being paid to see to it. Like a demon that had been awakened, rage built within me. I mimicked her patronizing gaze and tone.
 
 "You mean the asylum, don't you?"
 
 She let go of my hand. "Darrin, it's not an asylum."
 
-"Don't tell me what it's not. They won't let you out. That means it's a
-place you stick people who are behaviorally intolerable."
+"Don't tell me what it's not. They won't let you out. That means it's a place you stick people who are behaviorally intolerable."
 
-"I'd like to see you get some help. You seem to still have a lot of
-anger. Maybe you would be more comfortable with someone other than
-myself." She got up and lifted the phone. "I can give you a referral
-to\..."
+"I'd like to see you get some help. You seem to still have a lot of anger. Maybe you would be more comfortable with someone other than myself." She got up and lifted the phone. "I can give you a referral to\..."
 
-"The hospital? Where they'll give me a lobotomy? I don't think so. Put
-the fucking phone down."
+"The hospital? Where they'll give me a lobotomy? I don't think so. Put the fucking phone down."
 
-She was surprised and shocked, but didn't heed my warning. "Would you
-get me the number for\..."
+She was surprised and shocked, but didn't heed my warning. "Would you get me the number for\..."
 
-I grabbed the receiver out of her hand and yanked the phone across her
-desk; it slammed on the floor.
+I grabbed the receiver out of her hand and yanked the phone across her desk; it slammed on the floor.
 
 "I told you to put it down, but you didn't listen to me! Why?"
 
 "Darrin, take it easy." Her voice was quivering from fear.
 
-"Quit patronizing me, dammit! I'm fucking tired of it!" I was screaming.
-I quickly composed myself.
+"Quit patronizing me, dammit! I'm fucking tired of it!" I was screaming. I quickly composed myself.
 
-"You know Doc, sometimes when I look at you, you remind me of Judy." I
-touched the side of her face; she reeled back. "I loved her, I honestly
-did, but she made me so angry. I was forced into it."
+"You know Doc, sometimes when I look at you, you remind me of Judy." I touched the side of her face; she reeled back. "I loved her, I honestly did, but she made me so angry. I was forced into it."
 
-She pinned her back to the wall. She was cornered, her expression that
-of an animal caught in a snare; she was petrified. I smiled, tapping my
-fingers on the desk.
+She pinned her back to the wall. She was cornered, her expression that of an animal caught in a snare; she was petrified. I smiled, tapping my fingers on the desk.
 
 "Well, I think I'd better be going, got lots of things to do."
 
@@ -1325,80 +796,19 @@ I slammed my fist on the desk.
 
 "Will you shut up, for once!"
 
-There was silence, beautiful silence, even in the outer office. I knew
-they had heard me yelling; soon security would be all over this place
-and they would force me back into the asylum.
+There was silence, beautiful silence, even in the outer office. I knew they had heard me yelling; soon security would be all over this place and they would force me back into the asylum.
 
-"I'm outta here. Thanks for the clever conversation and the advice,
-Doc."
+"I'm outta here. Thanks for the clever conversation and the advice, Doc."
 
-I made a quiet exit; she stayed in her spot on the wall. The
-receptionist was deathly still. I returned her frightened stare with a
-Cheshire smile. I was certain the authorities would be coming for me
-soon.
+I made a quiet exit; she stayed in her spot on the wall. The receptionist was deathly still. I returned her frightened stare with a Cheshire smile. I was certain the authorities would be coming for me soon.
 
-The drive home, instead of lasting half an hour, turned into four hours.
-The landscape, passing by at freeway speed, was a comfortable blur: the
-houses and businesses, the putrid bay, the smog-choked airport, the
-square yuppies with their loosened ties and blank expressions, trying to
-pretend they had an intense problem getting home because the road was
-over-capacitated with commuters. It was their fault, the assholes, they
-had chosen their occupations, subsequently applied for jobs, and gotten
-them; they had known what they were getting into, but still insisted
-they had the right to honk and swerve from lane to lane, each trying to
-move the fastest in a beast of their own creation. If I hit any of them,
-I didn't give a shit. If the car still ran after an accident, I would
-keep on driving, even if I had badly injured someone. All that was
-waiting for me was the hospital\--no matter what I did. Even if I sat
-home all the time and did absolutely nothing, the hospital would still
-be waiting. The CD player was on the fritz, the radio was filled with
-banal commercials; if I were more paranoid I'd say there was a
-conspiracy. I wished I had my own music player. Why is it that when one
-station has a commercial, so do all the others? Coincidence? Ah, I don't
-know. Maybe I'll go buy one. No sense getting twisted in the problems of
-the world; ordinary, "normal" people---I hated them. And if they glare
-at me because I'm not driving like they are, because I'm not riding
-someone's bumper when they cut in front of me, I'll give them the bird.
+The drive home, instead of lasting half an hour, turned into four hours. The landscape, passing by at freeway speed, was a comfortable blur: the houses and businesses, the putrid bay, the smog-choked airport, the square yuppies with their loosened ties and blank expressions, trying to pretend they had an intense problem getting home because the road was over-capacitated with commuters. It was their fault, the assholes, they had chosen their occupations, subsequently applied for jobs, and gotten them; they had known what they were getting into, but still insisted they had the right to honk and swerve from lane to lane, each trying to move the fastest in a beast of their own creation. If I hit any of them, I didn't give a shit. If the car still ran after an accident, I would keep on driving, even if I had badly injured someone. All that was waiting for me was the hospital--no matter what I did. Even if I sat home all the time and did absolutely nothing, the hospital would still be waiting. The CD player was on the fritz, the radio was filled with banal commercials; if I were more paranoid I'd say there was a conspiracy. I wished I had my own music player. Why is it that when one station has a commercial, so do all the others? Coincidence? Ah, I don't know. Maybe I'll go buy one. No sense getting twisted in the problems of the world; ordinary, "normal" people---I hated them. And if they glare at me because I'm not driving like they are, because I'm not riding someone's bumper when they cut in front of me, I'll give them the bird.
 
-The house was dark when I arrived home. I had no idea where Marian and
-Frank were. I opened all the windows in the house---it was uncanny how
-it held the heat in---my room was the worst of all, the tiny window
-doing little for air circulation. I opened the door and turned on the
-fan in hopes the cat was in Marian's room and wouldn't wander into mine.
-I had bought a large pad of paper, some pens, and a ribbon for the
-typewriter somewhere in along the drive---where I had realized (perhaps
-discovered) I'd driven too far. The mall had been cool, and the people
-wrapped up in looking for something to buy, or deciding what they and
-their young friends wanted to do. I sat down, flipped open the pad to
-the first sheet of paper, placed the pens within reach, and waited for
-darkness to settle in.
+The house was dark when I arrived home. I had no idea where Marian and Frank were. I opened all the windows in the house---it was uncanny how it held the heat in---my room was the worst of all, the tiny window doing little for air circulation. I opened the door and turned on the fan in hopes the cat was in Marian's room and wouldn't wander into mine. I had bought a large pad of paper, some pens, and a ribbon for the typewriter somewhere in along the drive---where I had realized (perhaps discovered) I'd driven too far. The mall had been cool, and the people wrapped up in looking for something to buy, or deciding what they and their young friends wanted to do. I sat down, flipped open the pad to the first sheet of paper, placed the pens within reach, and waited for darkness to settle in.
 
-I liked the night. It is far better than the day. The temperature is
-bearable and when it gets into the morning hours, I come alive. That
-way, "normal" people are asleep and they can't contaminate my thoughts.
-The clear sky is a wondrous sight, and when the morning sun appears over
-the horizon, it is the most beautiful thing imaginable. The feeling of
-staying up all night is indescribable, especially so after intensive
-work. I liked writing and drawing, toiling over a creative design,
-honing something out of nothing; I know it takes a special sort of
-person to do it, and I hoped I had what it takes to achieve a semblance
-of greatness\--but I really didn't much care if I had "it" or not, I had
-to create in order for my mind to stop nagging me.
+I liked the night. It is far better than the day. The temperature is bearable and when it gets into the morning hours, I come alive. That way, "normal" people are asleep and they can't contaminate my thoughts. The clear sky is a wondrous sight, and when the morning sun appears over the horizon, it is the most beautiful thing imaginable. The feeling of staying up all night is indescribable, especially so after intensive work. I liked writing and drawing, toiling over a creative design, honing something out of nothing; I know it takes a special sort of person to do it, and I hoped I had what it takes to achieve a semblance of greatness--but I really didn't much care if I had "it" or not, I had to create in order for my mind to stop nagging me.
 
-I didn't pay attention to what was going on in the house. I had the
-radio on and couldn't hear if anybody came in or not. I was far too
-involved in what I was doing to be bothered with concerns about
-nobodies. I was drawing some interesting pictures. Someone---I don't
-remember his name---had tried to teach me in the hospital; through the
-lessons I had tried to listen, tried to duplicate his art, but the damn
-thing never worked out. I looked at what I had done, flipped a page on
-the tablet, and drew again. After trying to draw the same picture three
-times and failing all three, I drew another. I lay my head against the
-paper; I couldn't get the image in my head onto the tablet, the transfer
-from mind to hand wasn't working. Uncler was in my thoughts; I was
-thinking about him and realized I had been doing so most of the day. I
-found it odd that he had made such an impression on me, usually I didn't
-think about anyone so\...
+I didn't pay attention to what was going on in the house. I had the radio on and couldn't hear if anybody came in or not. I was far too involved in what I was doing to be bothered with concerns about nobodies. I was drawing some interesting pictures. Someone---I don't remember his name---had tried to teach me in the hospital; through the lessons I had tried to listen, tried to duplicate his art, but the damn thing never worked out. I looked at what I had done, flipped a page on the tablet, and drew again. After trying to draw the same picture three times and failing all three, I drew another. I lay my head against the paper; I couldn't get the image in my head onto the tablet, the transfer from mind to hand wasn't working. Uncler was in my thoughts; I was thinking about him and realized I had been doing so most of the day. I found it odd that he had made such an impression on me, usually I didn't think about anyone so\...
 
 The phone was ringing, distant and quiet.
 
@@ -1406,8 +816,7 @@ I answered it. The line was silent.
 
 "Hello...hello?"
 
-The slow inhale and exhale of someone smoking a cigarette. A strong
-image was chiseled into my brain.
+The slow inhale and exhale of someone smoking a cigarette. A strong image was chiseled into my brain.
 
 "Uncler?"
 
@@ -1419,9 +828,7 @@ image was chiseled into my brain.
 
 "I see."
 
-I brought the phone into my room and locked the door. I set the pen to
-paper. I started drawing a square room with a high ceiling and a round
-table in the center.
+I brought the phone into my room and locked the door. I set the pen to paper. I started drawing a square room with a high ceiling and a round table in the center.
 
 "Heard you made a mess of things at Doc's."
 
@@ -1435,16 +842,13 @@ table in the center.
 
 "Do you think Donalsed knows?"
 
-"That's why I'm phoning. Doc had somebody follow you. She's reported you
-to the authorities. You're dangerous and they will probably take you
-back to the asylum. I don't know when they will pounce on you."
+"That's why I'm phoning. Doc had somebody follow you. She's reported you to the authorities. You're dangerous and they will probably take you back to the asylum. I don't know when they will pounce on you."
 
 I almost dropped the phone. "What am I going to do?"
 
 "I'd say get out of there. And fast."
 
-I was sweating, nervous. I didn't want to go back to the hospital, or
-the lab, no matter what the cost. *Why did he call it an asylum?*
+I was sweating, nervous. I didn't want to go back to the hospital, or the lab, no matter what the cost. *Why did he call it an asylum?*
 
 "Where to?"
 
@@ -1452,14 +856,11 @@ the lab, no matter what the cost. *Why did he call it an asylum?*
 
 "What? So you can turn me in?"
 
-"Turn you in? That's not my style. But I don't care about all that, I
-just want to make sure you're safe. Besides, if Donalsed gets a hold of
-you, there's no telling what he'll make you do."
+"Turn you in? That's not my style. But I don't care about all that, I just want to make sure you're safe. Besides, if Donalsed gets a hold of you, there's no telling what he'll make you do."
 
 "Yeah, but . . ."
 
-"Now, get out of there and drive to the city. California Street and
-Sixth Avenue. Number 137 Sixth Avenue. Got it?"
+"Now, get out of there and drive to the city. California Street and Sixth Avenue. Number 137 Sixth Avenue. Got it?"
 
 "Yeah."
 
@@ -1467,22 +868,11 @@ Sixth Avenue. Number 137 Sixth Avenue. Got it?"
 
 "Okay."
 
-I slammed the phone down and shoved my keys into my pocket. It was then
-I noticed I had a smear of black ink on my hand; I wiped it off as well
-I could and found I had snapped the pen in half---the ink had spattered
-in several large blotches, covering the paper. I heard the far-off
-wailing of sirens and figured they were coming for me. On my way out, I
-accidentally kicked the cat---stupid animal---got behind the wheel of
-the car and drove away as fast I could. Approaching, two police cars and
-an ambulance sped past me as I headed for the freeway.
+I slammed the phone down and shoved my keys into my pocket. It was then I noticed I had a smear of black ink on my hand; I wiped it off as well I could and found I had snapped the pen in half---the ink had spattered in several large blotches, covering the paper. I heard the far-off wailing of sirens and figured they were coming for me. On my way out, I accidentally kicked the cat---stupid animal---got behind the wheel of the car and drove away as fast I could. Approaching, two police cars and an ambulance sped past me as I headed for the freeway.
 
-"You're one step ahead of them," Uncler said to me as I pulled up. It
-was well past midnight when I arrived. He was standing in the doorway of
-his building. He opened the garage and directed me to put my car in it.
+"You're one step ahead of them," Uncler said to me as I pulled up. It was well past midnight when I arrived. He was standing in the doorway of his building. He opened the garage and directed me to put my car in it.
 
-His apartment was large; it was a flat on the fourth floor, done
-entirely in art deco, with heavy black curtains covering the windows. My
-attention focused on a blue neon clock, which was mounted on the wall.
+His apartment was large; it was a flat on the fourth floor, done entirely in art deco, with heavy black curtains covering the windows. My attention focused on a blue neon clock, which was mounted on the wall.
 
 "Like anything to drink?"
 
@@ -1492,25 +882,13 @@ He was in a casual shirt and khaki pants. His hair was slicked back.
 
 "I'll get you a shot of whiskey, it'll calm you."
 
-He left the room for several minutes. I sat on the couch with my hands
-clasped and sweaty, trying to think of what I was going to do, where I
-was going to go. Maybe I could hide out at my parents' house up north;
-it was near the Oregon/Washington border. Donalsed wouldn't think I'd go
-that far, then again, he'd probably figure it would be the first place
-I'd flee to. I sat back and tried to relax. I was over-analyzing; my
-brain was overtaxed with anxiety and there was no way I could have a
-single clear thought. Best to have somebody else do the thinking for me.
+He left the room for several minutes. I sat on the couch with my hands clasped and sweaty, trying to think of what I was going to do, where I was going to go. Maybe I could hide out at my parents' house up north; it was near the Oregon/Washington border. Donalsed wouldn't think I'd go that far, then again, he'd probably figure it would be the first place I'd flee to. I sat back and tried to relax. I was over-analyzing; my brain was overtaxed with anxiety and there was no way I could have a single clear thought. Best to have somebody else do the thinking for me.
 
-Uncler came back with two crystal shot glasses and a bottle. He poured
-into both glasses and handed me the more generous of the two. He smiled
-slyly and swallowed all of his shot in one swift motion. I sipped at
-mine---it had been a long time since I'd had anything stronger than soda
-to drink.
+Uncler came back with two crystal shot glasses and a bottle. He poured into both glasses and handed me the more generous of the two. He smiled slyly and swallowed all of his shot in one swift motion. I sipped at mine---it had been a long time since I'd had anything stronger than soda to drink.
 
 "All at once and don't suffer over it." He lit a cigarette.
 
-I dumped the whiskey into the back of my throat, it burned as it went
-down. I coughed, almost heaving it back up. He patted me on the back.
+I dumped the whiskey into the back of my throat, it burned as it went down. I coughed, almost heaving it back up. He patted me on the back.
 
 "Pretty good. When was the last time you drank?"
 
@@ -1522,18 +900,11 @@ down. I coughed, almost heaving it back up. He patted me on the back.
 
 "The second goes down better than the first, believe me."
 
-I took the whole shot. It didn't taste as bad as the first, but still
-bad. He sat next to me.
+I took the whole shot. It didn't taste as bad as the first, but still bad. He sat next to me.
 
-"That'll help you relax. Look, it's late, why don't you take the bed and
-I'll stay on the couch." He put his hand on my leg. "Unless you'd feel
-more comfortable out here."
+"That'll help you relax. Look, it's late, why don't you take the bed and I'll stay on the couch." He put his hand on my leg. "Unless you'd feel more comfortable out here."
 
-"I don't think I can sleep, I'm too wound up in what's going on." I
-attempted to stand and fell back to the couch. I rubbed my eyes. I felt
-groggy. I looked at Uncler; his face was like a watercolor, blurring at
-the edges. I couldn't focus the skewed lines. He spoke. His voice was a
-distant echo.
+"I don't think I can sleep, I'm too wound up in what's going on." I attempted to stand and fell back to the couch. I rubbed my eyes. I felt groggy. I looked at Uncler; his face was like a watercolor, blurring at the edges. I couldn't focus the skewed lines. He spoke. His voice was a distant echo.
 
 "Sleep, Darrin. We'll talk in the morning."
 
@@ -1541,94 +912,41 @@ I saw a black pool open at my feet. I dove in headfirst.
 
 \* \* \* \* \*
 
-I woke. I didn't know what time it was. The apartment was dim, the
-curtains were drawn; I lay on the couch, with a blanket covering me. I
-was still fully dressed, my shoes on the floor.
+I woke. I didn't know what time it was. The apartment was dim, the curtains were drawn; I lay on the couch, with a blanket covering me. I was still fully dressed, my shoes on the floor.
 
-"Oh, crap," I sat up and tried to shake the remnants of sleep from my
-head.
+"Oh, crap," I sat up and tried to shake the remnants of sleep from my head.
 
-"What was in that drink?" I tried to stand, sat back down---my legs
-refused to support my weight. The neon clock glowed blazing blue on the
-wall across from me. I watched the second hand sweep around the red
-numerals; I could see the minute hand slowly moving. I concentrated on
-it as hard as I could, trying to find some sort of continuity. It was
-working; my mind was clearing as each minute passed. Soon I could stand.
-The next task was walking. There was a haze in the air, almost like
-smoke, it wouldn't go away, even when I tried to fan it with my hand.
+"What was in that drink?" I tried to stand, sat back down---my legs refused to support my weight. The neon clock glowed blazing blue on the wall across from me. I watched the second hand sweep around the red numerals; I could see the minute hand slowly moving. I concentrated on it as hard as I could, trying to find some sort of continuity. It was working; my mind was clearing as each minute passed. Soon I could stand. The next task was walking. There was a haze in the air, almost like smoke, it wouldn't go away, even when I tried to fan it with my hand.
 
-"Okay legs, walk." One step at a time. I made it to the clock without
-stumbling, much. Then back. On the third trip, the smoke dissipated; I
-cracked a smile and congratulated myself for having beat it. I tried to
-remember how I knew to do what I was doing to get over the effect of the
-drug. I assured myself I must've learned it in the hospital; I had faint
-memories of doing the same activity while locked in my room---they had
-given me dynamite drugs. My long-term memory was coming back; soon I
-believed I was starting to recall why I had been put there in the first
-place. Hazy details were all I had, and I wasn't sure if they were
-correct\--maybe it was a plot of a book I had read or something. In time
-it would all come crashing back to me.
+"Okay legs, walk." One step at a time. I made it to the clock without stumbling, much. Then back. On the third trip, the smoke dissipated; I cracked a smile and congratulated myself for having beat it. I tried to remember how I knew to do what I was doing to get over the effect of the drug. I assured myself I must've learned it in the hospital; I had faint memories of doing the same activity while locked in my room---they had given me dynamite drugs. My long-term memory was coming back; soon I believed I was starting to recall why I had been put there in the first place. Hazy details were all I had, and I wasn't sure if they were correct--maybe it was a plot of a book I had read or something. In time it would all come crashing back to me.
 
-I felt brave enough to put my shoes on. I noticed it was almost four. I
-also noticed the flat had been quiet the whole time I was awake, which
-meant Uncler wasn't home. I assumed he was at the lab---probably talking
-to Donalsed or Niles. At any rate, I thought it best I make a quick
-exit; Uncler had been kind to show hospitality to a desperate man, but
-drugging me wasn't exactly a confidence builder---it didn't inspire any
-kind of trust. What he had in mind for me was unknown, but I was sure it
-wouldn't be, as Doc would say, in my best interest.
+I felt brave enough to put my shoes on. I noticed it was almost four. I also noticed the flat had been quiet the whole time I was awake, which meant Uncler wasn't home. I assumed he was at the lab---probably talking to Donalsed or Niles. At any rate, I thought it best I make a quick exit; Uncler had been kind to show hospitality to a desperate man, but drugging me wasn't exactly a confidence builder---it didn't inspire any kind of trust. What he had in mind for me was unknown, but I was sure it wouldn't be, as Doc would say, in my best interest.
 
-I buttoned my shirt, tightened my belt, tied my shoes, and threw on my
-jacket. I headed for the door. The phone rang, the second ring yielding
-to the answering machine; a droll greeting, a beep, then a voice. My
-hand was on the knob.
+I buttoned my shirt, tightened my belt, tied my shoes, and threw on my jacket. I headed for the door. The phone rang, the second ring yielding to the answering machine; a droll greeting, a beep, then a voice. My hand was on the knob.
 
-"Darrin. Sam. Hope you're feeling better today. More relaxed? Good. If
-you can hear this, don't bother trying to leave. I have you dead-bolted
-in. They can't get to you now. The windows have key locks and if you
-perchance to look, you'll notice you're fairly high up, so don't worry.
-I'll be there in an hour with dinner. If you're peckish there's some
-odds and ends in the fridge. I'll see you."
+"Darrin. Sam. Hope you're feeling better today. More relaxed? Good. If you can hear this, don't bother trying to leave. I have you dead-bolted in. They can't get to you now. The windows have key locks and if you perchance to look, you'll notice you're fairly high up, so don't worry. I'll be there in an hour with dinner. If you're peckish there's some odds and ends in the fridge. I'll see you."
 
-A dial tone. I tried the knob; it turned, but the door wouldn't budge,
-the deadbolts moved by key only. The door was heavy, no way I could
-break it down. I had flashes of the hospital. The circumstances were the
-same; better taste in decor, but I was still trapped like an animal. I
-decided to sit and wait it out. And he was wrong about the
-fridge---nothing but a bottle of water, soda, and some stinking Chinese
-take-out.
+A dial tone. I tried the knob; it turned, but the door wouldn't budge, the deadbolts moved by key only. The door was heavy, no way I could break it down. I had flashes of the hospital. The circumstances were the same; better taste in decor, but I was still trapped like an animal. I decided to sit and wait it out. And he was wrong about the fridge---nothing but a bottle of water, soda, and some stinking Chinese take-out.
 
-Time passed. I sat on the couch where I had been sleeping and watched
-the neon clock, it's second hand passing the glowing red numerals. It
-hypnotized me.
+Time passed. I sat on the couch where I had been sleeping and watched the neon clock, it's second hand passing the glowing red numerals. It hypnotized me.
 
 I heard the bolt turn in the door. I didn't bother moving.
 
-"Hope you weren't too bad off, pal." He smiled cordially as he slammed
-the door behind him and fastened the deadbolts---the key went into his
-right pants pocket. He had a paper bag tucked under his arm. "I hope you
-don't mind, I have to protect you. I don't want them changing you."
+"Hope you weren't too bad off, pal." He smiled cordially as he slammed the door behind him and fastened the deadbolts---the key went into his right pants pocket. He had a paper bag tucked under his arm. "I hope you don't mind, I have to protect you. I don't want them changing you."
 
 "Yeah, okay." I smirked and glared at him. It was after six.
 
-"Oh, don't take it too hard." He threw his coat on a chair and sat next
-to me. He put his arm around me. "Your profile says you are a big baby,
-is that so?"
+"Oh, don't take it too hard." He threw his coat on a chair and sat next to me. He put his arm around me. "Your profile says you are a big baby, is that so?"
 
-I said nothing. He smiled and put his face close to my cheek, nuzzling
-my ear.
+I said nothing. He smiled and put his face close to my cheek, nuzzling my ear.
 
 "Look what I've brought for dinner."
 
-He tore open the bag. This display was all a game to him, I was his
-child at Christmas.
+He tore open the bag. This display was all a game to him, I was his child at Christmas.
 
-"It's from the Chinese place down the street, some chow mien, some rice.
-Chicken or beef?"
+"It's from the Chinese place down the street, some chow mien, some rice. Chicken or beef?"
 
-I remained silent and stared at the clock, watching the second hand
-sweep. The brilliant blue neon with tinges of red glared, perhaps
-pulsed.
+I remained silent and stared at the clock, watching the second hand sweep. The brilliant blue neon with tinges of red glared, perhaps pulsed.
 
 "You really should eat, since I imagine you haven't all day."
 
@@ -1638,9 +956,7 @@ He handed me the box.
 
 "I think you have some of these left over in your fridge."
 
-"Been snooping have we?" He dipped into the chow mien, the noodles like
-worms squirming off the end of his fork. "A biological experiment,
-nothing to worry about. How's yours?"
+"Been snooping have we?" He dipped into the chow mien, the noodles like worms squirming off the end of his fork. "A biological experiment, nothing to worry about. How's yours?"
 
 It was more fun to play with than to eat. "Okay."
 
@@ -1650,11 +966,9 @@ It was more fun to play with than to eat. "Okay."
 
 He looked at me sternly. "Eat, you need your strength."
 
-I dug the fork deeply into the box and took a big bite, rice falling
-from my mouth. He leaned back.
+I dug the fork deeply into the box and took a big bite, rice falling from my mouth. He leaned back.
 
-"Much better. I also picked up some drinks. Beer." He handed me a
-bottle. "Indulge my friend, soon we will have work to do."
+"Much better. I also picked up some drinks. Beer." He handed me a bottle. "Indulge my friend, soon we will have work to do."
 
 "What kind?"
 
@@ -1662,12 +976,9 @@ bottle. "Indulge my friend, soon we will have work to do."
 
 I drank deeply from the bottle, almost finishing it. He smiled at me.
 
-"How's the old memory doing?" He tapped his index finger on the side of
-my head.
+"How's the old memory doing?" He tapped his index finger on the side of my head.
 
-"Better." I was suddenly uncomfortable. On the end table beside me was a
-photo of Uncler and, I imagined, his wife and daughter. I hooked my
-thumb at it. "Who are they?"
+"Better." I was suddenly uncomfortable. On the end table beside me was a photo of Uncler and, I imagined, his wife and daughter. I hooked my thumb at it. "Who are they?"
 
 "Family."
 
@@ -1677,40 +988,23 @@ thumb at it. "Who are they?"
 
 "Where?"
 
-"Divorced. She left me. She thought I spent too much time at work. You
-should have heard what she said about me in court, that I was crazy. You
-and I have more in common than you think."
+"Divorced. She left me. She thought I spent too much time at work. You should have heard what she said about me in court, that I was crazy. You and I have more in common than you think."
 
 "Oh?"
 
-"Everybody says we are crazy, but we believe in ourselves, in our work.
-It is our life. She left me after I nearly completed my time
-experiments."
+"Everybody says we are crazy, but we believe in ourselves, in our work. It is our life. She left me after I nearly completed my time experiments."
 
-I choked on my food. "What?! Time dilation experiments\..." I chuckled.
-"That's fucking stupid."
+I choked on my food. "What?! Time dilation experiments\..." I chuckled. "That's fucking stupid."
 
-He slowly set his food down and looked into my eyes, scanning from one
-to the other. He'd probably heard the line a thousand times before and
-had a well-rehearsed response. "Time is irrelevant in certain quantum
-states. Of all people, Darrin, you should know that. All one needs is a
-bridge to this universe."
+He slowly set his food down and looked into my eyes, scanning from one to the other. He'd probably heard the line a thousand times before and had a well-rehearsed response. "Time is irrelevant in certain quantum states. Of all people, Darrin, you should know that. All one needs is a bridge to this universe."
 
-"A magnetic-resonant field is one such bridge," I retorted. "But you can
-never get it to properly synchronize for it to do any good at dilating
-the flow of time."
+"A magnetic-resonant field is one such bridge," I retorted. "But you can never get it to properly synchronize for it to do any good at dilating the flow of time."
 
-"That's where you come in. I've read all your publications and managed
-to get a copy of your work diary. You achieved synchrony. The only
-person I know who has."
+"That's where you come in. I've read all your publications and managed to get a copy of your work diary. You achieved synchrony. The only person I know who has."
 
-He got up and left the room. I picked at the tasteless remains of the
-food and set it down. He strode back in, carrying a bottle and two
-glasses of whiskey, his fingers dipped into each. He handed me one. I
-thought about the night before, and the drugs he had given me.
+He got up and left the room. I picked at the tasteless remains of the food and set it down. He strode back in, carrying a bottle and two glasses of whiskey, his fingers dipped into each. He handed me one. I thought about the night before, and the drugs he had given me.
 
-"A toast: To failed experiments, may they torment us until we are forced
-to succeed...as long as they don't permanently kill us."
+"A toast: To failed experiments, may they torment us until we are forced to succeed...as long as they don't permanently kill us."
 
 I eyed him carefully. "Let's exchange glasses."
 
@@ -1720,158 +1014,77 @@ His expression was one of perplexity. "Why?"
 
 "Fine."
 
-We switched glasses and I downed the liquor. He slammed his glass down
-on the table, upside down. He left the room again. I relaxed, safe in
-knowing that he wouldn't get the best of...oh, no, not again. Feeling
-groggy...the world twisting into a haze. This time, it seemed strangely
-familiar.
+We switched glasses and I downed the liquor. He slammed his glass down on the table, upside down. He left the room again. I relaxed, safe in knowing that he wouldn't get the best of...oh, no, not again. Feeling groggy...the world twisting into a haze. This time, it seemed strangely familiar.
 
-He had his coat in his hand and he threw me mine. "C'mon, we're taking a
-little trip."
+He had his coat in his hand and he threw me mine. "C'mon, we're taking a little trip."
 
-He took me under my arm. I remember going downstairs to the garage.
-Getting into a car. The slow acceleration of his take-off. Then, nothing
-more.
+He took me under my arm. I remember going downstairs to the garage. Getting into a car. The slow acceleration of his take-off. Then, nothing more.
 
 "Hey. Hey, Jensen. Hey, c'mon, wake up."
 
-Uncler was slapping my face. My eyes opened onto bright lights. I tried
-shutting them again, but he continued to slap me. He set me upright. I
-felt the cold prickle of a needle going into my arm---the hospital,
-no---when it was withdrawn, the world seemed to clear. A person on each
-side lifted me to my feet. They pulled me across the floor, my feet
-dragging behind me.
+Uncler was slapping my face. My eyes opened onto bright lights. I tried shutting them again, but he continued to slap me. He set me upright. I felt the cold prickle of a needle going into my arm---the hospital, no---when it was withdrawn, the world seemed to clear. A person on each side lifted me to my feet. They pulled me across the floor, my feet dragging behind me.
 
-"In a few minutes, you'll be fine," Uncler said to me. "I gave you
-something that should help with your memory block, and maybe make you
-more social."
+"In a few minutes, you'll be fine," Uncler said to me. "I gave you something that should help with your memory block, and maybe make you more social."
 
-He and another man laughed. The voice was familiar. They set me in a
-chair, it was padded and comfortable. I slowly opened my eyes. Something
-struck in my memory: the painted black walls; the expansive, smooth
-concrete floor; the monolithic generator in one corner; the triangular
-box, encrusted with panels of gauges and knobs, on a table in the center
-of the room, with an electrode dangling from above. And all the wires. I
-had to be at the lab, my instincts wouldn't fail me. It was the odor
-that did it, that queer smell; a combination of burnt hair, salt water,
-jasmine, and the faint ozone from high-voltage. But I thought they
-destroyed everything.
+He and another man laughed. The voice was familiar. They set me in a chair, it was padded and comfortable. I slowly opened my eyes. Something struck in my memory: the painted black walls; the expansive, smooth concrete floor; the monolithic generator in one corner; the triangular box, encrusted with panels of gauges and knobs, on a table in the center of the room, with an electrode dangling from above. And all the wires. I had to be at the lab, my instincts wouldn't fail me. It was the odor that did it, that queer smell; a combination of burnt hair, salt water, jasmine, and the faint ozone from high-voltage. But I thought they destroyed everything.
 
 "Strike a chord, old boy?"
 
-I looked in the direction of the voice. It was Niles. His
-self-satisfied, oafish grin was filled with teeth. Uncler put his hand
-on my shoulder and whispered in my ear.
+I looked in the direction of the voice. It was Niles. His self-satisfied, oafish grin was filled with teeth. Uncler put his hand on my shoulder and whispered in my ear.
 
-"We need it to work again. We're so close to a breakthrough. What aren't
-we doing right?"
+"We need it to work again. We're so close to a breakthrough. What aren't we doing right?"
 
 I don't know what you're talking about."
 
 Niles spoke. "Want me to rough him up?"
 
-"Leave him alone. Listen, Darrin, you have to remember. I need to know.
-What's the secret? I've run the machine using your equations, having
-rebuilding it at least seven times over. But I can't get it, I'm not the
-genius you are. I know the answer is in that head of yours."
+"Leave him alone. Listen, Darrin, you have to remember. I need to know. What's the secret? I've run the machine using your equations, having rebuilding it at least seven times over. But I can't get it, I'm not the genius you are. I know the answer is in that head of yours."
 
-I rubbed my brow. "I don't know. I can't think. I don't even know what
-this place is or what all this equipment is for."
+I rubbed my brow. "I don't know. I can't think. I don't even know what this place is or what all this equipment is for."
 
-"He's lost it, Uncler. They cut all of it out of him. He has no answer
-to give."
+"He's lost it, Uncler. They cut all of it out of him. He has no answer to give."
 
 "Shut up. Give him another dose."
 
-The needle in my arm again. I was defenseless. The cool elixir coursed
-through my veins. My heart pounded harder, my throat swelled, I
-swallowed dryly every second breath. I coughed. Uncler walked off,
-returning with a greyish-silver ring. It looked like a zero, an oblong
-oval not more than two meters in diameter. He placed it in my hands. I
-rubbed my thumbs over it, the metal was cool, synthetic.
+The needle in my arm again. I was defenseless. The cool elixir coursed through my veins. My heart pounded harder, my throat swelled, I swallowed dryly every second breath. I coughed. Uncler walked off, returning with a greyish-silver ring. It looked like a zero, an oblong oval not more than two meters in diameter. He placed it in my hands. I rubbed my thumbs over it, the metal was cool, synthetic.
 
 "Is that the correct material? It cost a fortune to make it."
 
 "No."
 
-Uncler paced before me. He snapped his fingers. "Niles, set it up and
-turn it on."
+Uncler paced before me. He snapped his fingers. "Niles, set it up and turn it on."
 
-Niles snatched the ring out of my hands, put it on a staff and slid the
-staff into a channel in the top of the machine. Uncler knelt beside me.
+Niles snatched the ring out of my hands, put it on a staff and slid the staff into a channel in the top of the machine. Uncler knelt beside me.
 
-"Watch. This has to help. Focus on the ring. Remember. I've set the
-currents to flow asynchronously between the internal and the external
-compartments and have cooled the core to near absolute zero. I can see
-the distortions around the edges, but that's as far as I can take it.
-What is the secret? I have to know. There are so many things we can do
-with this, so many lives we could enhance, we could travel
-long-distance, so many places so far away we could never reach
-conventionally. What are we doing wrong?"
+"Watch. This has to help. Focus on the ring. Remember. I've set the currents to flow asynchronously between the internal and the external compartments and have cooled the core to near absolute zero. I can see the distortions around the edges, but that's as far as I can take it. What is the secret? I have to know. There are so many things we can do with this, so many lives we could enhance, we could travel long-distance, so many places so far away we could never reach conventionally. What are we doing wrong?"
 
-Niles flicked on the high-voltage generator; it uttered a low hum that
-gradually became louder. I could feel the current it was generating. The
-power cumulated in the dangling electrode. Bluish streams of electricity
-jumped to the ring; it glowed with supernatural light.
+Niles flicked on the high-voltage generator; it uttered a low hum that gradually became louder. I could feel the current it was generating. The power cumulated in the dangling electrode. Bluish streams of electricity jumped to the ring; it glowed with supernatural light.
 
-In the cellar, Uncler with the cipher on a staff. His smile. The whir
-was loud, becoming deafening; the hairs on the back of my neck stood on
-end. Judy chained to the wall, how she struggles to get free.
+In the cellar, Uncler with the cipher on a staff. His smile. The whir was loud, becoming deafening; the hairs on the back of my neck stood on end. Judy chained to the wall, how she struggles to get free.
 
 \* \* \* \* \*
 
-The machine was screaming an incoherent and wholly penetrating language.
-The pyramid-shaped body seemed to want to spin, to jump dimensions, but
-remained still. The pitch pierced my ears; I tried to shield them with
-my hands, but I couldn't move.
+The machine was screaming an incoherent and wholly penetrating language. The pyramid-shaped body seemed to want to spin, to jump dimensions, but remained still. The pitch pierced my ears; I tried to shield them with my hands, but I couldn't move.
 
-The light, streaming out of the cipher into Judy, she screams of pain.
-The pyramid whirling uncontrollably, lifting itself off the floor; the
-cipher remaining to keep the circuit connected. The gateway opens, the
-link established; the pyramid near the wall unfolds away from itself.
-The doorway, a blinding light emanating; I can see others, they want to
-travel into this world. I cannot let them, they wish to destroy, I must
-shut it down. Turn off the generator, cut the power, shut it down, too
-much, can't turn back, destroy the cipher, knock it out of balance,
-disrupt the frequency, close the door, danger, great danger, too late,
-too late, shut it down before it's too late.
+The light, streaming out of the cipher into Judy, she screams of pain. The pyramid whirling uncontrollably, lifting itself off the floor; the cipher remaining to keep the circuit connected. The gateway opens, the link established; the pyramid near the wall unfolds away from itself. The doorway, a blinding light emanating; I can see others, they want to travel into this world. I cannot let them, they wish to destroy, I must shut it down. Turn off the generator, cut the power, shut it down, too much, can't turn back, destroy the cipher, knock it out of balance, disrupt the frequency, close the door, danger, great danger, too late, too late, shut it down before it's too late.
 
 "SHUT IT DOWN!"
 
 "SHUT IT DOWN!!!!"
 
-I screamed. The words stuck in my throat; my head seemed to open, my
-brain finally recovering lost information, retrieving data---it will not
-stop---I have seen them, they have seen me, they know me and are coming
-for me. I've seen their world, I've traveled to their space. They know I
-can open the gate, they are sending out their signal to match ours, they
-want me to help them. They need me, so they can come to us, so they can
-travel, explore, destroy, devour. Their faces are alien, features
-contorted, insect-like. Their expressions are contemptible, their
-intentions evil---I can feel it. My mind, it will not stop, they have
-entered me, violated my thoughts, contaminated me; I have seen their
-universe, stop it, stop them, must stop them, no matter what the cost.
-DO SOMETHING!!
+I screamed. The words stuck in my throat; my head seemed to open, my brain finally recovering lost information, retrieving data---it will not stop---I have seen them, they have seen me, they know me and are coming for me. I've seen their world, I've traveled to their space. They know I can open the gate, they are sending out their signal to match ours, they want me to help them. They need me, so they can come to us, so they can travel, explore, destroy, devour. Their faces are alien, features contorted, insect-like. Their expressions are contemptible, their intentions evil---I can feel it. My mind, it will not stop, they have entered me, violated my thoughts, contaminated me; I have seen their universe, stop it, stop them, must stop them, no matter what the cost. DO SOMETHING!!
 
-Darkness. My feet on the smooth, wet concrete, shuffling slowly toward
-what's left of Judy---her body withered like a raisin, her once
-beautiful red hair burnt off, the outer layer of her once milky-white
-skin gone, the muscles tight around the bones, her face frozen in an
-expression of great anguish and fear, her eyes merely sockets. She saw
-their world and did not return.
+Darkness. My feet on the smooth, wet concrete, shuffling slowly toward what's left of Judy---her body withered like a raisin, her once beautiful red hair burnt off, the outer layer of her once milky-white skin gone, the muscles tight around the bones, her face frozen in an expression of great anguish and fear, her eyes merely sockets. She saw their world and did not return.
 
 A distant voice calling to me\...
 
 "...Darrin...can you hear me? Darrin, it's Sam...Darrin..."
 
-I am being shaken. I open my eyes carefully. My forehead is cool, my
-skin saturated with sweat. Phlegm sticks in the back of my throat.
+I am being shaken. I open my eyes carefully. My forehead is cool, my skin saturated with sweat. Phlegm sticks in the back of my throat.
 
 "...Darrin..?"
 
-I answer, a garbled croak exits. My vision slowly focuses...Sam is
-looking down upon me like a bug under a glass. His face shows streaks of
-worry.
+I answer, a garbled croak exits. My vision slowly focuses...Sam is looking down upon me like a bug under a glass. His face shows streaks of worry.
 
 "...Darrin, you okay..?"
 
@@ -1881,16 +1094,13 @@ I raise my hand and touch his shoulder.
 
 I shake my head. "Darrin's not here."
 
-"Come back. You can't leave just yet. Not without me. I want to travel.
-I want to see them and their universe."
+"Come back. You can't leave just yet. Not without me. I want to travel. I want to see them and their universe."
 
-I laugh. My frame quivers. My chest hurts, but I cannot stop. I am
-nearly hysterical.
+I laugh. My frame quivers. My chest hurts, but I cannot stop. I am nearly hysterical.
 
 "I nearly lost you."
 
-He sets me upright. We are back in his apartment. My head aches. He
-hands me a shot of whiskey. I refuse.
+He sets me upright. We are back in his apartment. My head aches. He hands me a shot of whiskey. I refuse.
 
 "Take it, there's nothing in it. Trust me."
 
@@ -1906,13 +1116,9 @@ Feeling better. Aspirin and more whiskey. Several cigarettes.
 
 Time passes.
 
-I felt awful. I knew I was a wreck. My shirt was covered with crusted
-drool and spots of blood. I ran my finger along my gums; they were
-sensitive and bled as I touched them, an iron taste on my tongue. More
-whiskey. Sam sat next to me, stroking my matted hair.
+I felt awful. I knew I was a wreck. My shirt was covered with crusted drool and spots of blood. I ran my finger along my gums; they were sensitive and bled as I touched them, an iron taste on my tongue. More whiskey. Sam sat next to me, stroking my matted hair.
 
-"You scared the hell out of me. It was quite a task getting you out of
-the laboratory and back here in your state."
+"You scared the hell out of me. It was quite a task getting you out of the laboratory and back here in your state."
 
 "What did you expect? You knew what would happen."
 
@@ -1922,108 +1128,55 @@ the laboratory and back here in your state."
 
 "Yeah."
 
-He whispered something inaudible under his breath and looked away. He
-knew I was watching him. He glanced back at me and flashed a Cheshire
-grin.
+He whispered something inaudible under his breath and looked away. He knew I was watching him. He glanced back at me and flashed a Cheshire grin.
 
 "Why don't you take a shower? Clean up. I'll get you some clothes."
 
-I stood and held my balance. He led me to the bathroom, set a towel on
-the sink, and closed the door. I peeled off my clothes and drew a hot
-bath---soaking seemed like a much better idea.
+I stood and held my balance. He led me to the bathroom, set a towel on the sink, and closed the door. I peeled off my clothes and drew a hot bath---soaking seemed like a much better idea.
 
-Steam clouded the mirror, filled my lungs. I settled into the water,
-rubbing the soap over me.
+Steam clouded the mirror, filled my lungs. I settled into the water, rubbing the soap over me.
 
 \* \* \* \* \*
 
-A sharp pain. Judy holding hands with them, her body charred, their
-expressions twisted.
+A sharp pain. Judy holding hands with them, her body charred, their expressions twisted.
 
 "Ahhh!" I grabbed the sides of my head and squeezed.
 
-Uncler rushed in and knelt beside the tub. He pulled my hands down and
-put my head to his chest.
+Uncler rushed in and knelt beside the tub. He pulled my hands down and put my head to his chest.
 
 "It's okay, relax, all gone now. Gone, gone, gone."
 
-He kissed the top of my head, brought my face to his. He lightly kissed
-my forehead, my cheek, my nose, then my lips. I didn't respond. My
-expression remained stolid, but it didn't seem to matter much to him; he
-continued kissing me---his tongue probing my sensitive mouth, the taste
-of bile and iron.
+He kissed the top of my head, brought my face to his. He lightly kissed my forehead, my cheek, my nose, then my lips. I didn't respond. My expression remained stolid, but it didn't seem to matter much to him; he continued kissing me---his tongue probing my sensitive mouth, the taste of bile and iron.
 
-He finished bathing me. The images of Judy and the others, they were
-gone. Sam was a great comfort. I was helpless and he was strong; his
-energy and desire were overpowering. He massaged my broken body, pushed
-away the hurt, and brought feeling back into places that I had thought
-were long dead, places Marian had tried to stimulate, but failed. He
-seemed to know exactly what to do; a warm feeling started in my stomach,
-moved up my chest, down to my loins. I kissed him back, hard. My breaths
-were rapid, my desire awakened. A thought tugged at me. I didn't think I
-found him attractive. He was so different, despite the sameness of our
-sexes, but it didn't pose a hindrance, couldn't stifle the feelings I
-had in me.
+He finished bathing me. The images of Judy and the others, they were gone. Sam was a great comfort. I was helpless and he was strong; his energy and desire were overpowering. He massaged my broken body, pushed away the hurt, and brought feeling back into places that I had thought were long dead, places Marian had tried to stimulate, but failed. He seemed to know exactly what to do; a warm feeling started in my stomach, moved up my chest, down to my loins. I kissed him back, hard. My breaths were rapid, my desire awakened. A thought tugged at me. I didn't think I found him attractive. He was so different, despite the sameness of our sexes, but it didn't pose a hindrance, couldn't stifle the feelings I had in me.
 
-He dried me and had me stand on the bath mat. He ran his hand down my
-back and reached for my penis; my hard-on formed in his hand. He smiled
-and took me in his mouth. I lay my head back. My thoughts were
-non-existent; a pleasant emptiness enveloped me. My brain was quiet and
-for once didn't bother me; desire was all I knew, flaming desire.
+He dried me and had me stand on the bath mat. He ran his hand down my back and reached for my penis; my hard-on formed in his hand. He smiled and took me in his mouth. I lay my head back. My thoughts were non-existent; a pleasant emptiness enveloped me. My brain was quiet and for once didn't bother me; desire was all I knew, flaming desire.
 
-He brought me to the point of near orgasm, then stopped; he stood and,
-with my fingers, undressed. He was already erect. I wanted to reach out
-and touch him, but stopped myself. Although everything that was going on
-was completely unfamiliar, I had faint recollections, memories like a
-watercolor in the rain. I was doing what I could to open the floodgates
-in my brain.
+He brought me to the point of near orgasm, then stopped; he stood and, with my fingers, undressed. He was already erect. I wanted to reach out and touch him, but stopped myself. Although everything that was going on was completely unfamiliar, I had faint recollections, memories like a watercolor in the rain. I was doing what I could to open the floodgates in my brain.
 
-He grasped my hand and guided it over his body. I wrapped my fingers
-around his erection; he squeezed his hand around mine. I could feel him
-throb, the heat he emanated. I released him and, with my hand in his, he
-led me to the bedroom.
+He grasped my hand and guided it over his body. I wrapped my fingers around his erection; he squeezed his hand around mine. I could feel him throb, the heat he emanated. I released him and, with my hand in his, he led me to the bedroom.
 
-He positioned me on all fours facing the headboard; the dark wood was
-carved with many intricate designs. I let my eye wander through them,
-allowing myself to be lost in the patterns. I was trying to occupy my
-mind with simple tasks. I was nervous, unsure of what was to happen,
-anticipating, hoping---I was shaking. I felt his finger probing me,
-pulling on the tender ring of muscle, stretching it so it could dilate
-enough to accommodate him. I massaged myself, pulling on my testicles;
-he whispered to me.
+He positioned me on all fours facing the headboard; the dark wood was carved with many intricate designs. I let my eye wander through them, allowing myself to be lost in the patterns. I was trying to occupy my mind with simple tasks. I was nervous, unsure of what was to happen, anticipating, hoping---I was shaking. I felt his finger probing me, pulling on the tender ring of muscle, stretching it so it could dilate enough to accommodate him. I massaged myself, pulling on my testicles; he whispered to me.
 
-"Turn on the table lamp, in the drawer hand me the small bottle you
-see."
+"Turn on the table lamp, in the drawer hand me the small bottle you see."
 
-I did so. He squeezed out a portion and put his finger back in me. He
-tossed the bottle on the floor and brought himself close to me.
+I did so. He squeezed out a portion and put his finger back in me. He tossed the bottle on the floor and brought himself close to me.
 
 "It may hurt at first, I'll go slowly."
 
-Pain wouldn't bother me---I had known so much, nothing else could
-compare. He slowly worked himself inside me. I must've given some
-resistance, at first he put only a little in, moving it back and forth
-before he slid his entire length in me.
+Pain wouldn't bother me---I had known so much, nothing else could compare. He slowly worked himself inside me. I must've given some resistance, at first he put only a little in, moving it back and forth before he slid his entire length in me.
 
-I let out an uncontrolled yelp---a little pain, yes, but I could handle
-it. His motions were slow, then he moved more rapidly. I was
-masturbating.
+I let out an uncontrolled yelp---a little pain, yes, but I could handle it. His motions were slow, then he moved more rapidly. I was masturbating.
 
-Time moves slowly when you are unaware of it, it quickly passes you by.
-He pulled himself out.
+Time moves slowly when you are unaware of it, it quickly passes you by. He pulled himself out.
 
 "Lay on your back, Darrin."
 
-I did so and he reentered me from the front. I continued to jerk myself
-off, my orgasm building quickly within me; I sensed it was happening for
-him, too. Only a few minutes after he had entered me, we both came.
+I did so and he reentered me from the front. I continued to jerk myself off, my orgasm building quickly within me; I sensed it was happening for him, too. Only a few minutes after he had entered me, we both came.
 
 \* \* \* \* \*
 
-I pulled the sheet up around my neck. I was cold. Sam sat up against the
-headboard; he was smoking, the cigarette hanging lazily out of his
-mouth. I tried to get his attention by staring at him, but his mind was
-somewhere else.
+I pulled the sheet up around my neck. I was cold. Sam sat up against the headboard; he was smoking, the cigarette hanging lazily out of his mouth. I tried to get his attention by staring at him, but his mind was somewhere else.
 
 "Sam, can I ask you something personal?"
 
@@ -2037,62 +1190,31 @@ somewhere else.
 
 He looked at me and drew on his cigarette. "No."
 
-I stared at the ceiling, I was experiencing an overwhelming sense of
-peace. "I guess they destroyed my mind at the hospital."
+I stared at the ceiling, I was experiencing an overwhelming sense of peace. "I guess they destroyed my mind at the hospital."
 
 "What do you mean?"
 
 "What do you know about it? The truth, I mean. I need to hear it."
 
-He exhaled slowly, smoke drifting off. "I heard they tried to destroy
-your mind. Rumor has it you lost it, had a habit of raving about some
-'others' from another dimension. Ranting about how they'd violated you
-and how you needed to shut them out, so the doctors fixed you. Fixed you
-up good. No more 'others'. So who were the 'others'?"
+He exhaled slowly, smoke drifting off. "I heard they tried to destroy your mind. Rumor has it you lost it, had a habit of raving about some 'others' from another dimension. Ranting about how they'd violated you and how you needed to shut them out, so the doctors fixed you. Fixed you up good. No more 'others'. So who were the 'others'?"
 
-"What I can scarcely remember is they are from the other place, on the
-other side of the gate. I remember their faces, I remember seeing them,
-the terrifying feeling of not being in my body, being in an alien one.
-But, I don't know any more. Sometimes, I think I see them, or else they
-see me, but maybe I'm looking at myself from myself. It's hard to talk
-about it."
+"What I can scarcely remember is they are from the other place, on the other side of the gate. I remember their faces, I remember seeing them, the terrifying feeling of not being in my body, being in an alien one. But, I don't know any more. Sometimes, I think I see them, or else they see me, but maybe I'm looking at myself from myself. It's hard to talk about it."
 
 "Which place are they from? How did you discover their space?"
 
 "I don't want to talk about it. It has a bad effect on me."
 
-"You're in the company of friends, Darrin," he put his arm around me.
-"You can trust me. Now you know me a bit better, I think."
+"You're in the company of friends, Darrin," he put his arm around me. "You can trust me. Now you know me a bit better, I think."
 
-"I know enough to know you know more than you let on. You know what the
-machine in the lab does. You just can't get it calibrated properly. It
-opens a gate to another dimension, a whole other world, an entire race
-of people. Where they are from relative to use I don't know, but I
-imagine they are far, far away from our solar system."
+"I know enough to know you know more than you let on. You know what the machine in the lab does. You just can't get it calibrated properly. It opens a gate to another dimension, a whole other world, an entire race of people. Where they are from relative to use I don't know, but I imagine they are far, far away from our solar system."
 
-He looked pensive. "I first heard about your temporal dilation
-hypothesis in one of your publications. It immediately grabbed my
-attention. To be honest, I was rather surprised they published it at
-all, from the commentary which followed. From that day on, I've been
-obsessed with the idea. Then about a year or so ago, I heard about the
-experiments you were undertaking at the university, trying to prove your
-hypothesis. I mean, really, a machine which allows an object, a person,
-to travel such long distances instantaneously, over such a vast expanse
-of time and space. It's utterly insane. Only a genius could not only
-have thought it up by creating the mathematical context, but to also
-build an experiment which demonstrated it! Whoa! I had some connections
-at the university and after a year of lobbying, they let me into your
-laboratory, giving me a copy of your notebook. Some of the pages were
-missing. I assumed in those pages was the secret of the detail, since
-the machine never worked simply by turning it on according to the
-procedure you outlined. Something vital was missing."
+He looked pensive. "I first heard about your temporal dilation hypothesis in one of your publications. It immediately grabbed my attention. To be honest, I was rather surprised they published it at all, from the commentary which followed. From that day on, I've been obsessed with the idea. Then about a year or so ago, I heard about the experiments you were undertaking at the university, trying to prove your hypothesis. I mean, really, a machine which allows an object, a person, to travel such long distances instantaneously, over such a vast expanse of time and space. It's utterly insane. Only a genius could not only have thought it up by creating the mathematical context, but to also build an experiment which demonstrated it! Whoa! I had some connections at the university and after a year of lobbying, they let me into your laboratory, giving me a copy of your notebook. Some of the pages were missing. I assumed in those pages was the secret of the detail, since the machine never worked simply by turning it on according to the procedure you outlined. Something vital was missing."
 
 "Flesh."
 
 "What?"
 
-"Flesh, live flesh. Life-force is the catalyst that facilitates the
-gate."
+"Flesh, live flesh. Life-force is the catalyst that facilitates the gate."
 
 "Huh? I've never heard of such a thing."
 
@@ -2100,19 +1222,11 @@ gate."
 
 "What does that mean?"
 
-"What I didn't write in the notebook was a myth I my father had
-discovered while doing archaeology in mezzo America. It was he who
-discovered a series of pictographs, along with a small codex which
-described the use of an apparatus which did something similar. In their
-case, to facilitate their 'gods' arrival in this world. It was an
-amazing find, a fifth codex."
+"What I didn't write in the notebook was a myth I my father had discovered while doing archaeology in mezzo America. It was he who discovered a series of pictographs, along with a small codex which described the use of an apparatus which did something similar. In their case, to facilitate their 'gods' arrival in this world. It was an amazing find, a fifth codex."
 
-"You mean like the Mayans? But that dates to the first millennium. They
-didn't have any form of electricity, as far as we know."
+"You mean like the Mayans? But that dates to the first millennium. They didn't have any form of electricity, as far as we know."
 
-"Certainly. But they had the capability to generate vast intensities of
-magnetic fields using a smelting process on a unique collection of
-materials."
+"Certainly. But they had the capability to generate vast intensities of magnetic fields using a smelting process on a unique collection of materials."
 
 "You're saying the magnetic field is the key?"
 
@@ -2120,11 +1234,7 @@ materials."
 
 "Similar to quantum tunneling, then?"
 
-"More akin to signaling, but with large quantities of power, in the
-manner of an Einstein-Rosen bridge. See, for it to work, there *has* to
-be someone on the other side generating a signal of the same
-characteristic pattern but with a rotational vorticity which is opposite
-to allow attraction of the polarized resonant fields."
+"More akin to signaling, but with large quantities of power, in the manner of an Einstein-Rosen bridge. See, for it to work, there *has* to be someone on the other side generating a signal of the same characteristic pattern but with a rotational vorticity which is opposite to allow attraction of the polarized resonant fields."
 
 "A wormhole."
 
@@ -2134,33 +1244,23 @@ to allow attraction of the polarized resonant fields."
 
 "Exactly."
 
-"And you think your father discovered these collaborators, back in the
-Mayan times?"
+"And you think your father discovered these collaborators, back in the Mayan times?"
 
-"Yes. Time is only valid for us in our universe. It is the ocean that we
-swim in. Across universes, time has less meaning. There are only
-resonance points, like addresses, which can be connected. Certain
-conditions favor some over others."
+"Yes. Time is only valid for us in our universe. It is the ocean that we swim in. Across universes, time has less meaning. There are only resonance points, like addresses, which can be connected. Certain conditions favor some over others."
 
-"So that means they are performing this feat of traveling now? Just to
-us, it is in the past."
+"So that means they are performing this feat of traveling now? Just to us, it is in the past."
 
-"Whenever a machine, calibrated properly, exists, that allows the
-potential of point-connection and therefore travel."
+"Whenever a machine, calibrated properly, exists, that allows the potential of point-connection and therefore travel."
 
 "Which implies *they* could be anywhere, even here?"
 
-"Once in our universe, they are subjected to the flow of time like we
-are. In order to be in the future---relative to A.D. 450---they would
-need another point of connection."
+"Once in our universe, they are subjected to the flow of time like we are. In order to be in the future---relative to A.D. 450---they would need another point of connection."
 
 "Any you posit they are looking to travel here?"
 
-"They already have. But that's where my memory stops. I faintly remember
-*seeing* them, *meeting* them, in fact. But it's gone from me."
+"They already have. But that's where my memory stops. I faintly remember *seeing* them, *meeting* them, in fact. But it's gone from me."
 
-"So let's go back a minute. What's this thing you said about flesh being
-the facilitator?"
+"So let's go back a minute. What's this thing you said about flesh being the facilitator?"
 
 "Yes. Live flesh. Like people."
 
@@ -2170,215 +1270,117 @@ the facilitator?"
 
 "That doesn't make any sense at all."
 
-"Scientifically, no. Mystically, yes. By its design, the cipher can only
-operate with someone ready to lose their life."
+"Scientifically, no. Mystically, yes. By its design, the cipher can only operate with someone ready to lose their life."
 
-"Yeah, but human sacrifice is a cultural thing, it has absolutely no
-bearing on scientific exploration."
+"Yeah, but human sacrifice is a cultural thing, it has absolutely no bearing on scientific exploration."
 
-"My father discovered glyphs from walls in the Temple of Inscriptions,
-in Palenque, and copied them. The codex lie in a chamber just beyond it.
-It was written that the machine had originally been kept in Teotihuacan
-and rituals performed in a secret chamber in order to travel to the city
-of Xibalba. The cipher would be used to try to contact the 'others'.
-Priests wanting power wanted to travel to the Underworld to accost these
-others---the Lords of Death, noted in legends---in order to achieve
-immortality. In our language, to exist in a place without time moving
-from place to distant place. That is what the cipher is for."
+"My father discovered glyphs from walls in the Temple of Inscriptions, in Palenque, and copied them. The codex lie in a chamber just beyond it. It was written that the machine had originally been kept in Teotihuacan and rituals performed in a secret chamber in order to travel to the city of Xibalba. The cipher would be used to try to contact the 'others'. Priests wanting power wanted to travel to the Underworld to accost these others---the Lords of Death, noted in legends---in order to achieve immortality. In our language, to exist in a place without time moving from place to distant place. That is what the cipher is for."
 
-"You call it *cipher* but the apparatus doing the work looks more like
-the number '9'."
+"You call it *cipher* but the apparatus doing the work looks more like the number '9'."
 
-"When connected to the circuit, yes, if you include the connection
-leaving it. Which makes sense as Xibalba is divided into nine distinct
-levels. Some of these levels were the place where human souls were kept.
-One soul was required to travel there to allow a bridge created by the
-cipher."
+"When connected to the circuit, yes, if you include the connection leaving it. Which makes sense as Xibalba is divided into nine distinct levels. Some of these levels were the place where human souls were kept. One soul was required to travel there to allow a bridge created by the cipher."
 
-"So in the legend it is these 'Lords of Death' who facilitate travel,
-but something else is going on, then."
+"So in the legend it is these 'Lords of Death' who facilitate travel, but something else is going on, then."
 
-"Yes. The myth is one thing but the cipher actually does quite another,
-in terms of physics."
+"Yes. The myth is one thing but the cipher actually does quite another, in terms of physics."
 
-"But I'm confused, then, about the need for human sacrifice to make it
-work. In the frame of legend, sure, but how do you reconcile it in terms
-of physics?"
+"But I'm confused, then, about the need for human sacrifice to make it work. In the frame of legend, sure, but how do you reconcile it in terms of physics?"
 
-"That's where my intellect became lazy. I was desperate to make it work.
-So I followed the formula to its exact description."
+"That's where my intellect became lazy. I was desperate to make it work. So I followed the formula to its exact description."
 
-"I see. That must be what is contained in the missing pages of your
-journal."
+"I see. That must be what is contained in the missing pages of your journal."
 
-"But what you don't see is that the one who is sacrificed receives
-redemption and is the guide for the traveler."
+"But what you don't see is that the one who is sacrificed receives redemption and is the guide for the traveler."
 
-"That is quite an explanation. I see you are not the genius I made you
-out to be."
+"That is quite an explanation. I see you are not the genius I made you out to be."
 
 "Let me have a cigarette."
 
 He handed me one and lit it for me.
 
-A long pause ensued. I could tell he was thinking deeply, intellectually
-digesting the story I had told him. I had nearly finished smoking when
-he sat up.
+A long pause ensued. I could tell he was thinking deeply, intellectually digesting the story I had told him. I had nearly finished smoking when he sat up.
 
 "So that's it, then. The catalyst is a human victim."
 
-My heart suddenly leaped. "You're not thinking of actually continuing
-the work, after what I just told you?"
+My heart suddenly leaped. "You're not thinking of actually continuing the work, after what I just told you?"
 
-He quickly looked at me, smiling furtively. He stood up. "No. No. In
-fact, I'm going to go to the lab tomorrow and destroy it."
+He quickly looked at me, smiling furtively. He stood up. "No. No. In fact, I'm going to go to the lab tomorrow and destroy it."
 
 "I'd like to go and\..."
 
-"You had better stay here. It's too dangerous. Besides, they are still
-looking for you."
+"You had better stay here. It's too dangerous. Besides, they are still looking for you."
 
 "But...I..."
 
 "You've had enough strain. Rest."
 
-I laughed, the thought seemed immensely funny. What should have been an
-inner monologue I expressed verbally: "I guess being caught between two
-dimensions while trying to destroy the cipher takes some time to recover
-from." A headache was just starting to come on.
+I laughed, the thought seemed immensely funny. What should have been an inner monologue I expressed verbally: "I guess being caught between two dimensions while trying to destroy the cipher takes some time to recover from." A headache was just starting to come on.
 
 "So *that's* what happened to you? You were caught *between* spaces?"
 
-I looked up at him. "As far as I can remember, when I tried to stop the
-cipher's operating cycle, I did it when my body was already inside the
-gate."
+I looked up at him. "As far as I can remember, when I tried to stop the cipher's operating cycle, I did it when my body was already inside the gate."
 
-He thought intensely. "So that means a part of you is still in Xibalba,
-in one of those levels, suffering from torture?"
+He thought intensely. "So that means a part of you is still in Xibalba, in one of those levels, suffering from torture?"
 
-"That could be a proper explanation for my predicament." The headache
-was intensifying. It made me feel cold. I lay down on the couch.
+"That could be a proper explanation for my predicament." The headache was intensifying. It made me feel cold. I lay down on the couch.
 
-"Poor guy." He leaned over and kissed me on the forehead. "Sleep. We'll
-talk some more later."
+"Poor guy." He leaned over and kissed me on the forehead. "Sleep. We'll talk some more later."
 
 \* \* \* \* \*
 
-When I woke at some point in time later, he was getting ready to leave.
-I kept my eyes closed, pretending to be still asleep. The key he used
-for the deadbolts he stored in a drawer next to the door. I saw him set
-it in there as he pulled the door shut. I quickly got dressed, ran a
-comb through my hair, and left. I let him have a twenty-minute head
-start to insure he wouldn't return and catch me. I was quiet as a mouse.
-I figured I would arrive at the lab after him and give him at least an
-hour to see if he really intended to destroy the machine---if not, then
-I would personally do it.
+When I woke at some point in time later, he was getting ready to leave. I kept my eyes closed, pretending to be still asleep. The key he used for the deadbolts he stored in a drawer next to the door. I saw him set it in there as he pulled the door shut. I quickly got dressed, ran a comb through my hair, and left. I let him have a twenty-minute head start to insure he wouldn't return and catch me. I was quiet as a mouse. I figured I would arrive at the lab after him and give him at least an hour to see if he really intended to destroy the machine---if not, then I would personally do it.
 
-I hit the button for the garage and the door slid up. Luckily, I still
-had my car keys. I turned on the radio, the music and static making an
-eclectic background. The road blurred by, the sun a steady strobe as I
-cruised below an overpass. No dreams the night before, how about that.
-In the comfort of Sam they had vanished, but through my insecurity and
-vulnerability, he had used me. I wanted to hit myself for having been
-stupid enough to tell him everything about the cipher...but even he, as
-manipulating as he was, didn't have the stomach to add the final
-ingredient.
+I hit the button for the garage and the door slid up. Luckily, I still had my car keys. I turned on the radio, the music and static making an eclectic background. The road blurred by, the sun a steady strobe as I cruised below an overpass. No dreams the night before, how about that. In the comfort of Sam they had vanished, but through my insecurity and vulnerability, he had used me. I wanted to hit myself for having been stupid enough to tell him everything about the cipher...but even he, as manipulating as he was, didn't have the stomach to add the final ingredient.
 
-The roadway folded before my eyes, the lane dots twisting into
-disheveled shapes. The putrid smell of exhaust, burnt flesh, and ozone
-seared my nostrils; I heard voices, faint voices. I snapped off the
-radio, but the voices continued; I perked my ears, trying to listen to
-them. The language was alien, but I understood it with perfect clarity.
-One voice, then many; I saw the lab, Judy, her soft red hair, her smile,
-her beauty---she quickly mutated into the decayed heap I had seen lumped
-on the floor. She reaches out for me; she wants me to join her in
-Xibalba.
+The roadway folded before my eyes, the lane dots twisting into disheveled shapes. The putrid smell of exhaust, burnt flesh, and ozone seared my nostrils; I heard voices, faint voices. I snapped off the radio, but the voices continued; I perked my ears, trying to listen to them. The language was alien, but I understood it with perfect clarity. One voice, then many; I saw the lab, Judy, her soft red hair, her smile, her beauty---she quickly mutated into the decayed heap I had seen lumped on the floor. She reaches out for me; she wants me to join her in Xibalba.
 
-The car swerved; I nudged another car into the center guard. A quick
-right onto the off-ramp and I was heading toward the house on
-Cappuccino. I parked in the back, trying to hide myself. I needed to
-regain control; I was going to get out and walk, although I wanted to
-stay in the car and drive off---my actions were not my own. I was a
-spectator.
+The car swerved; I nudged another car into the center guard. A quick right onto the off-ramp and I was heading toward the house on Cappuccino. I parked in the back, trying to hide myself. I needed to regain control; I was going to get out and walk, although I wanted to stay in the car and drive off---my actions were not my own. I was a spectator.
 
 The clock read three. Marian usually came home around five-thirty.
 
 Wait.
 
-I hid in my room, kneeling before my futon; my senses were keen, my ears
-tuned to the slightest noise. Activity in the neighboring apartments, I
-could see them in my mind through the wall; a car going by on the
-street, my mind's eye watched it. Marian, come home.
+I hid in my room, kneeling before my futon; my senses were keen, my ears tuned to the slightest noise. Activity in the neighboring apartments, I could see them in my mind through the wall; a car going by on the street, my mind's eye watched it. Marian, come home.
 
 Waiting. Five-thirty-three.
 
-Many things happened at once. I know it all. But order to make sense, I
-must filter the out unimportant details.
+Many things happened at once. I know it all. But order to make sense, I must filter the out unimportant details.
 
-Harsh scratching at Marian's door. It was from the inside---the cat. It
-was furiously trying to get out. With a grin, I rose. I went to the
-door, opened it a crack; the cat's orange-red coat was standing straight
-up. It growled, then hissed at me. I knelt with a facade smile. Its
-green eyes were electric, teeth bared---small fur ball, you're no match
-for me.
+Harsh scratching at Marian's door. It was from the inside---the cat. It was furiously trying to get out. With a grin, I rose. I went to the door, opened it a crack; the cat's orange-red coat was standing straight up. It growled, then hissed at me. I knelt with a facade smile. Its green eyes were electric, teeth bared---small fur ball, you're no match for me.
 
-It suddenly calmed. It sat and stared at me with wide pupils. As I lay
-on the floor and looked into its face, it displayed its teeth and formed
-its mouth to simulate speech. A voice came out of it. Nothing surprised
-me any longer.
+It suddenly calmed. It sat and stared at me with wide pupils. As I lay on the floor and looked into its face, it displayed its teeth and formed its mouth to simulate speech. A voice came out of it. Nothing surprised me any longer.
 
-"You stupid bastard, Darrin. You promised to marry me\..." I reeled
-back, it was Judy's voice. "Backed right out of it. Now you send me
-there and plan to give an encore."
+"You stupid bastard, Darrin. You promised to marry me\..." I reeled back, it was Judy's voice. "Backed right out of it. Now you send me there and plan to give an encore."
 
 I sat with my back to the wall. The cat grinned and paced toward me.
 
 "Comin' for you."
 
-It leaped for my face. I blocked and it tore into my arm. Drops of blood
-fell to the hardwood floor. I shook my arm and the cat sailed across the
-room. It ran under the bed.
+It leaped for my face. I blocked and it tore into my arm. Drops of blood fell to the hardwood floor. I shook my arm and the cat sailed across the room. It ran under the bed.
 
 "Come here you."
 
-It wailed, as it had in the cellar. I shut the door and window; I pulled
-the sheet off the bed. With one hand, I flipped the bed upright. The cat
-made a mad dash for the door, but didn't realize I had shut it. Its
-claws scratched the floor as it tried to make a quick turn. I threw the
-sheet over it and pulled the corners together, cinching it closed---it
-was bagged, and struggled violently. I was smiling again, ignoring the
-pain in my arm.
+It wailed, as it had in the cellar. I shut the door and window; I pulled the sheet off the bed. With one hand, I flipped the bed upright. The cat made a mad dash for the door, but didn't realize I had shut it. Its claws scratched the floor as it tried to make a quick turn. I threw the sheet over it and pulled the corners together, cinching it closed---it was bagged, and struggled violently. I was smiling again, ignoring the pain in my arm.
 
 "Gonna take care of you."
 
-I drew water into the bathtub---ice cold---filled it to the rim. I
-lowered the bag into it.
+I drew water into the bathtub---ice cold---filled it to the rim. I lowered the bag into it.
 
 "Bye-bye."
 
-It struggled. Air bubbles rose to the surface. Less and less it fought,
-until there was no movement---nothing. I pulled a heavy book out of my
-room to hold it under for good measure.
+It struggled. Air bubbles rose to the surface. Less and less it fought, until there was no movement---nothing. I pulled a heavy book out of my room to hold it under for good measure.
 
-A few minutes later, a car parked in the street in front of the house.
-It was Marian. I quickly rushed to her room and straightened it, put a
-fresh sheet on the bed, shutting the door. I locked the bathroom door.
-Marian was still at her car, digging through it. I had just enough time
-to wash my arm, bandage the cuts, put on a long-sleeved shirt, turn on
-the television, and situate myself on the couch before she came in. She
-looked surprised to see me.
+A few minutes later, a car parked in the street in front of the house. It was Marian. I quickly rushed to her room and straightened it, put a fresh sheet on the bed, shutting the door. I locked the bathroom door. Marian was still at her car, digging through it. I had just enough time to wash my arm, bandage the cuts, put on a long-sleeved shirt, turn on the television, and situate myself on the couch before she came in. She looked surprised to see me.
 
 "Darrin, haven't seen you in a while."
 
 I pretended to be into the TV. "Been busy."
 
-She went to her room. I hoped she wouldn't notice anything amiss. She
-came back out; she hadn't.
+She went to her room. I hoped she wouldn't notice anything amiss. She came back out; she hadn't.
 
 "What have you been up to?"
 
-I snapped off the TV. "I was thinking, we haven't had dinner out lately.
-Let's do it tonight, my treat."
+I snapped off the TV. "I was thinking, we haven't had dinner out lately. Let's do it tonight, my treat."
 
 "I'd love to, but Frank and I already have a date."
 
@@ -2390,15 +1392,11 @@ Let's do it tonight, my treat."
 
 "Of course not."
 
-I stood and grabbed her arms. "Marian. I need to talk and it would be
-better over a meal. Please."
+I stood and grabbed her arms. "Marian. I need to talk and it would be better over a meal. Please."
 
-"Okay, okay, let me leave him a note." She scribbled on scrap paper dug
-out from her purse and set it on the coffee table. "I need to go to the
-bathroom."
+"Okay, okay, let me leave him a note." She scribbled on scrap paper dug out from her purse and set it on the coffee table. "I need to go to the bathroom."
 
-My eyes darted to the door, then to her. "Something's wrong with the
-toilet, it overflowed. I already called the landlord. Can you hold it?"
+My eyes darted to the door, then to her. "Something's wrong with the toilet, it overflowed. I already called the landlord. Can you hold it?"
 
 "I suppose."
 
@@ -2410,8 +1408,7 @@ She walked in front of me and looked back.
 
 "The cat you found in the cellar. He wasn't in my room."
 
-"He's probably wandering around somewhere. I just saw him before you
-came in. He seemed all cooped up, so I let him out."
+"He's probably wandering around somewhere. I just saw him before you came in. He seemed all cooped up, so I let him out."
 
 "Okay, but I'm not sure if he can find his way back."
 
@@ -2427,32 +1424,25 @@ I drove at blinding speed, toward the lab.
 
 "Where are we going?"
 
-"A great Italian place near where I used to work. I've been meaning to
-take you there."
+"A great Italian place near where I used to work. I've been meaning to take you there."
 
 "Kind of far, isn't it?" She seemed nervous. I wasn't sure why.
 
 "Not at all. We'll be there shortly."
 
-We were nearing the university. I needed one more excuse to get to the
-lab. "Oh, shit!"
+We were nearing the university. I needed one more excuse to get to the lab. "Oh, shit!"
 
 "What? What?"
 
-I looked at her. "Would you mind terribly if I stop by my office and
-pick up some papers? I must finish them tonight, I'm going to see a
-client tomorrow."
+I looked at her. "Would you mind terribly if I stop by my office and pick up some papers? I must finish them tonight, I'm going to see a client tomorrow."
 
-"I didn't know you were working again. I thought you were not allowed to
-work at all." She gazed out the window.
+"I didn't know you were working again. I thought you were not allowed to work at all." She gazed out the window.
 
 I was suddenly caught by what she said. "How do you know about that?"
 
 "You must have told me when we met."
 
-"I could have," she seemed more nervous. She must be connected with Doc,
-to keep an eye on me. I decided to diffuse the tension. "Perhaps I
-forgot, seems like that is the story of my life these days."
+"I could have," she seemed more nervous. She must be connected with Doc, to keep an eye on me. I decided to diffuse the tension. "Perhaps I forgot, seems like that is the story of my life these days."
 
 I laughed, she laughed.
 
@@ -2460,11 +1450,7 @@ I laughed, she laughed.
 
 "Very close."
 
-"Good, because I'm getting pretty hungry." Her voice seemed to be
-shaking from nervousness, almost as if she were keeping a secret that,
-if found out, would be the death of her. Ironic, I must say. We arrived
-at the gate. It had a guard posted, which was usual for the afterhours.
-He leaned his head out the window of his cabin.
+"Good, because I'm getting pretty hungry." Her voice seemed to be shaking from nervousness, almost as if she were keeping a secret that, if found out, would be the death of her. Ironic, I must say. We arrived at the gate. It had a guard posted, which was usual for the afterhours. He leaned his head out the window of his cabin.
 
 "Can I help you?"
 
@@ -2472,9 +1458,7 @@ He leaned his head out the window of his cabin.
 
 "Name?"
 
-I was beginning to think this wasn't the best idea, going right into the
-laboratory when they were looking for me. But here I was, there was not
-turning back.
+I was beginning to think this wasn't the best idea, going right into the laboratory when they were looking for me. But here I was, there was not turning back.
 
 "Professor Darrin Jensen."
 
@@ -2488,20 +1472,15 @@ He looked at Marian, then at me.
 
 He smirked. "I gotta check it out."
 
-He returned to his cabin and picked up the phone. He nodded several
-times. Marian was fidgeting in her seat. Only a few more minutes, relax,
-almost there.
+He returned to his cabin and picked up the phone. He nodded several times. Marian was fidgeting in her seat. Only a few more minutes, relax, almost there.
 
-"Must be a new guy, I don't recognize him." I said snarkly. "The rookies
-are so into following protocol to the letter."
+"Must be a new guy, I don't recognize him." I said snarkly. "The rookies are so into following protocol to the letter."
 
 The guard waved.
 
 "Go on through, Professor Jensen." He opened the gate.
 
-The lab was housed a small distance off-campus within a series of
-nondescript buildings on the hillside. I followed a winding road to the
-very back one.
+The lab was housed a small distance off-campus within a series of nondescript buildings on the hillside. I followed a winding road to the very back one.
 
 "Have you ever been here before, Marian?"
 
@@ -2511,12 +1490,9 @@ I knew she was lying.
 
 "Well then, I can give you the grand tour."
 
-I parked the car. We got out and walked a short distance to the
-entrance. The main entrance was unlocked and the secretary who usually
-manned the post was nowhere to be seen. Strange.
+I parked the car. We got out and walked a short distance to the entrance. The main entrance was unlocked and the secretary who usually manned the post was nowhere to be seen. Strange.
 
-"I used to spend all my time here," I waxed lyrical. "It really
-disturbed my family life. I really don't like coming here."
+"I used to spend all my time here," I waxed lyrical. "It really disturbed my family life. I really don't like coming here."
 
 "But you said you work here?" She asked. "You don't like it now?"
 
@@ -2524,19 +1500,11 @@ disturbed my family life. I really don't like coming here."
 
 "No," she shrugged. "I suppose not."
 
-We walked down long hallways and many vast open spaces behind windows to
-number 19, my old laboratory. I was expecting to run into Uncler
-somewhere along the route. The door was locked. I took my set of keys,
-unlocked it, and flung the door open in a dramatic fashion. Uncler *and*
-Niles were toying with the machine. Surprised and shocked, Niles walked
-over to me.
+We walked down long hallways and many vast open spaces behind windows to number 19, my old laboratory. I was expecting to run into Uncler somewhere along the route. The door was locked. I took my set of keys, unlocked it, and flung the door open in a dramatic fashion. Uncler *and* Niles were toying with the machine. Surprised and shocked, Niles walked over to me.
 
-"Jensen. Hello. Nice to see you again." He cast a look at Marian. "What
-is SHE doing here?" She withdrew into herself. Sam walked over, glaring
-at both of us.
+"Jensen. Hello. Nice to see you again." He cast a look at Marian. "What is SHE doing here?" She withdrew into herself. Sam walked over, glaring at both of us.
 
-"Kathy, you're supposed to keep an eye on him. Not let him traipse
-around."
+"Kathy, you're supposed to keep an eye on him. Not let him traipse around."
 
 "Kathy? Your name's Kathy?! Who's Marian?"
 
@@ -2546,83 +1514,49 @@ around."
 
 "You should have stayed put."
 
-"Well, I wanted to see if you were good at your word. I see that you
-aren't."
+"Well, I wanted to see if you were good at your word. I see that you aren't."
 
-"How can you blame me? Such a fabulous piece of work. My intellect is
-not so lazy, I'm going to figure the last steps out."
+"How can you blame me? Such a fabulous piece of work. My intellect is not so lazy, I'm going to figure the last steps out."
 
 "That will take too long."
 
-"Take it easy, Darrin," Niles snorted. "We are readying a new
-calibration. Uncler's had a bit of inspiration."
+"Take it easy, Darrin," Niles snorted. "We are readying a new calibration. Uncler's had a bit of inspiration."
 
 "Only because he learnt it from me."
 
 "We're going to try it momentarily, if you'll allow us to finish."
 
-"If you insist," I went to the workbench in a corner, pulled out two
-chairs, set Marian in one and took one for myself. Sam and Niles
-continued what they were doing before I interrupted them. When they
-seemed satisfied with what they had done with the machine and the
-alignment of the cipher, relative to the pyramidal case and surrounding
-rings, Niles went over to the high-voltage switches. Sam drew the
-Faraday cage around the apparatus and motioned to Niles to turn on the
-power. Slowly it ramped up, soon a corona appeared on the cipher
-coinciding with a series of smooth, slow arcs between each segment of
-the outer rings. Sam motioned for Niles to engage secondary power and
-the pyramid started its rotation, slowly at first, then speeding up
-until it was only visible as a blur. The third and final power switch
-was thrown and the machine lit up, exploding with the noise and smell of
-ozone emissions. But it did no more than a perform a fabulous light
-show. Sam was becoming frustrated, his patience wearing thin. He yelled
-at Niles to ramp it down by reversing the switching sequence. In a few
-minutes it was quiet again. He then turned to me, eyeing Marian.
+"If you insist," I went to the workbench in a corner, pulled out two chairs, set Marian in one and took one for myself. Sam and Niles continued what they were doing before I interrupted them. When they seemed satisfied with what they had done with the machine and the alignment of the cipher, relative to the pyramidal case and surrounding rings, Niles went over to the high-voltage switches. Sam drew the Faraday cage around the apparatus and motioned to Niles to turn on the power. Slowly it ramped up, soon a corona appeared on the cipher coinciding with a series of smooth, slow arcs between each segment of the outer rings. Sam motioned for Niles to engage secondary power and the pyramid started its rotation, slowly at first, then speeding up until it was only visible as a blur. The third and final power switch was thrown and the machine lit up, exploding with the noise and smell of ozone emissions. But it did no more than a perform a fabulous light show. Sam was becoming frustrated, his patience wearing thin. He yelled at Niles to ramp it down by reversing the switching sequence. In a few minutes it was quiet again. He then turned to me, eyeing Marian.
 
 "Okay. I give up. Show me what you did."
 
-I sat smug in my chair with my arms folded. "Is that how you ask
-nicely?"
+I sat smug in my chair with my arms folded. "Is that how you ask nicely?"
 
 "Darrin."
 
-"I'll need some convincing first, the three of you have been very rude
-to me."
+"I'll need some convincing first, the three of you have been very rude to me."
 
 "Darrin, please," Marian said. "Let's go and forget about all this."
 
-Niles shot a look at me; I glared at Niles and at Uncler. 'Don't listen
-to her," Niles said. "This experiment is worth more than anything you
-need to do to make it successful."
+Niles shot a look at me; I glared at Niles and at Uncler. 'Don't listen to her," Niles said. "This experiment is worth more than anything you need to do to make it successful."
 
 "You really don't have the stomach for it, either of you."
 
-Sam came over to me and knelt beside me, close to my face. "Please,
-Darrin. Show us what you did to make it work."
+Sam came over to me and knelt beside me, close to my face. "Please, Darrin. Show us what you did to make it work."
 
-The room was deathly still, no one moved, no one breathed. In that
-moment, I was happier than I had ever been. No noise, no sounds, the
-thoughts in my head quiet and people around me anticipating my next
-move. I enjoyed it as long as I could.
+The room was deathly still, no one moved, no one breathed. In that moment, I was happier than I had ever been. No noise, no sounds, the thoughts in my head quiet and people around me anticipating my next move. I enjoyed it as long as I could.
 
 "Fix Marian and Niles a drink, Sam."
 
-He nodded, went to a small refrigerator and came back with two shot
-glasses. He filled each with a shot of whiskey he had sauced me with. He
-handed each of them one and held the bottle in his hand.
+He nodded, went to a small refrigerator and came back with two shot glasses. He filled each with a shot of whiskey he had sauced me with. He handed each of them one and held the bottle in his hand.
 
 "What about you?" Niles asked.
 
-"I can't drink, Niles. It doesn't mix with my medication," I winked at
-Sam.
+"I can't drink, Niles. It doesn't mix with my medication," I winked at Sam.
 
-I watched Niles and Marian drink their glasses and to my surprise, Sam
-took a deep drink from the bottle. I was never able to figure out how he
-snuck the psychotropic drugs in that manner. Seems I miss the most
-important details of a story. Doc probably gave him some guidance.
+I watched Niles and Marian drink their glasses and to my surprise, Sam took a deep drink from the bottle. I was never able to figure out how he snuck the psychotropic drugs in that manner. Seems I miss the most important details of a story. Doc probably gave him some guidance.
 
-"I don't feel so good," Marian said. "What was in that drink?" She
-passed out, collapsing into her chair.
+"I don't feel so good," Marian said. "What was in that drink?" She passed out, collapsing into her chair.
 
 Niles stared at me.
 
@@ -2630,64 +1564,39 @@ Niles stared at me.
 
 "I'll manage."
 
-He looked to Sam, who nodded. He dragged her out of the chair and draped
-her over his shoulder. I dug in a drawer at the table where I was
-sitting and found a generous length of non-conductive nylon rope. I
-looked toward the machine looking for the iron rings I had installed
-just behind it, but didn't see them.
+He looked to Sam, who nodded. He dragged her out of the chair and draped her over his shoulder. I dug in a drawer at the table where I was sitting and found a generous length of non-conductive nylon rope. I looked toward the machine looking for the iron rings I had installed just behind it, but didn't see them.
 
-"Have you modified the arrangement?" I asked. "I don't see the iron
-rings."
+"Have you modified the arrangement?" I asked. "I don't see the iron rings."
 
 "I removed them," Niles said sheepishly.
 
-"Well, put them back!" I snapped. He went to another table in a corner
-of the room and came back with the four iron rings. He placed them in
-the wall behind the cipher. Niles and Sam lifted Marian from her chair
-and stood her at the intersection of them. Sam and I tied her arms and
-legs, suspending her a foot above the floor.
+"Well, put them back!" I snapped. He went to another table in a corner of the room and came back with the four iron rings. He placed them in the wall behind the cipher. Niles and Sam lifted Marian from her chair and stood her at the intersection of them. Sam and I tied her arms and legs, suspending her a foot above the floor.
 
-"Just like us, huh? The two of us, willing to do what it takes to see it
-through."
+"Just like us, huh? The two of us, willing to do what it takes to see it through."
 
 His face seemed sad. "I'm just following your lead."
 
-"Get a wooden step to support her weight, Niles. We don't want her body
-to touch the floor."
+"Get a wooden step to support her weight, Niles. We don't want her body to touch the floor."
 
-Niles returned with a platform and put it in place. Uncler had a faint
-smile on his face; I returned it.
+Niles returned with a platform and put it in place. Uncler had a faint smile on his face; I returned it.
 
 "Now we shall have success. I promise you."
 
-I found a hydrometer also in the drawer and checked the humidity of the
-room.
+I found a hydrometer also in the drawer and checked the humidity of the room.
 
-"We need to increase the moisture level. Niles, hose her and the wall
-behind her down. And close the Faraday cage, we don't want to fry
-ourselves."
+"We need to increase the moisture level. Niles, hose her and the wall behind her down. And close the Faraday cage, we don't want to fry ourselves."
 
-I jumped into the chair by the panel and whirled around in it, like a
-child in a park. On my third or so revolution, it occurred to me the
-settings were *way* out of whack, like novices having set the positions
-of the knobs in the hope it was correct. I put them into their correct
-positions. Niles shut off the water and went to the high-voltage
-switches. Everything was in place.
+I jumped into the chair by the panel and whirled around in it, like a child in a park. On my third or so revolution, it occurred to me the settings were *way* out of whack, like novices having set the positions of the knobs in the hope it was correct. I put them into their correct positions. Niles shut off the water and went to the high-voltage switches. Everything was in place.
 
-"Sam, take a hold of the pivot which changes the angular position of the
-cipher."
+"Sam, take a hold of the pivot which changes the angular position of the cipher."
 
-I was in control of the ignition sequence for the electrode, Uncler was
-ready to pivot the cipher at my command. A flick of a switch by Niles
-would start the procedure.
+I was in control of the ignition sequence for the electrode, Uncler was ready to pivot the cipher at my command. A flick of a switch by Niles would start the procedure.
 
 "Ready?"
 
-I pointed to Niles and he threw the first switch, turning the generator
-on. I watched the gauge on the panel. The amperes rose at a steadily.
+I pointed to Niles and he threw the first switch, turning the generator on. I watched the gauge on the panel. The amperes rose at a steadily.
 
-"Level it off at eight thousand volts. Then, when I engage the electrode
-to the cipher, throw the second switch. Wait for my signal."
+"Level it off at eight thousand volts. Then, when I engage the electrode to the cipher, throw the second switch. Wait for my signal."
 
 He nodded.
 
@@ -2699,182 +1608,77 @@ He nodded.
 
 "Got it."
 
-The generator whined as it built up current. For the first time in quite
-a long time, excitement throbbed within me.
+The generator whined as it built up current. For the first time in quite a long time, excitement throbbed within me.
 
-The needle on the gauge increased steadily: 6, 7, 7.5, 7.8, 8.0. The
-capacitors were charging well. I was proud how she still worked as the
-day I made her. The voltage leveled. I turned a knob on the panel and
-set the electrode into position.
+The needle on the gauge increased steadily: 6, 7, 7.5, 7.8, 8.0. The capacitors were charging well. I was proud how she still worked as the day I made her. The voltage leveled. I turned a knob on the panel and set the electrode into position.
 
 "Two centimeters above. Niles, throw the second switch."
 
-Blue streaks of lightning playfully encircled the cipher. The pyramid
-started its rotation. I pointed to Uncler, he pivoted the cipher and
-stopped it exactly at seventeen degrees. Through all his nonsense and
-posturing, this part was the truth, he had followed my notes to a 'T'
-and had practiced the experiment perhaps dozens of times. He was good,
-but not good enough to know how to run the panel.
+Blue streaks of lightning playfully encircled the cipher. The pyramid started its rotation. I pointed to Uncler, he pivoted the cipher and stopped it exactly at seventeen degrees. Through all his nonsense and posturing, this part was the truth, he had followed my notes to a 'T' and had practiced the experiment perhaps dozens of times. He was good, but not good enough to know how to run the panel.
 
-"About two meters before the cage, that's where you'll be able to see
-the gate, boys. It will open like a flash."
+"About two meters before the cage, that's where you'll be able to see the gate, boys. It will open like a flash."
 
-My finger was on the switch, it trembled terribly. One flick would power
-up the pulse current through the cipher which was in synchrony with the
-magnetic field at the rings. I could see the pattern in my mind. I think
-I drew it in my notebook once, it was quite a thing to behold. But
-Marian still needed to be connected to the circuit. Once Niles threw the
-third and final switch, it would be closed. Once in that state, I would
-engage the rotational vorticity of the rings and it would be ready to
-open the gate. I looked at Marian, the deceitful little spy; she was
-slowly moving back and forth while unconscious, as if in a trance.
-Uncler's psychotropics were much better than the ones I had used on
-Judy. At this point, she was starting to wake up as the magnetic field
-began saturating her body. I watched the level rise, doubling as the
-sequence was supposed to be: 0.5 Teslas, 1, 2, 4, 8. It was nearly show
-time. Hairs on my neck started to stand, the field was leaking from the
-cage, there must be damage to the cage. No time for that now. No time
-for anything else.
+My finger was on the switch, it trembled terribly. One flick would power up the pulse current through the cipher which was in synchrony with the magnetic field at the rings. I could see the pattern in my mind. I think I drew it in my notebook once, it was quite a thing to behold. But Marian still needed to be connected to the circuit. Once Niles threw the third and final switch, it would be closed. Once in that state, I would engage the rotational vorticity of the rings and it would be ready to open the gate. I looked at Marian, the deceitful little spy; she was slowly moving back and forth while unconscious, as if in a trance. Uncler's psychotropics were much better than the ones I had used on Judy. At this point, she was starting to wake up as the magnetic field began saturating her body. I watched the level rise, doubling as the sequence was supposed to be: 0.5 Teslas, 1, 2, 4, 8. It was nearly show time. Hairs on my neck started to stand, the field was leaking from the cage, there must be damage to the cage. No time for that now. No time for anything else.
 
-"Ready, boys?" I yelled above the whir. "Niles, throw the third switch."
-He did and I immediately after turned on the pulse current. The cipher
-ebbed with brilliant greyish-white light. The gauge measuring current
-climbed quickly to nearly the top of the scale. Suddenly a wave of force
-struck out, it nearly knocked me out of my chair.
+"Ready, boys?" I yelled above the whir. "Niles, throw the third switch." He did and I immediately after turned on the pulse current. The cipher ebbed with brilliant greyish-white light. The gauge measuring current climbed quickly to nearly the top of the scale. Suddenly a wave of force struck out, it nearly knocked me out of my chair.
 
-"Darrin! There!" Niles pointed at the cipher. It discharged a bolt of
-light that contacted Marian. She screamed, painfully, and excruciatingly
-but it was barely audible above the electrical noise. The gate, where
-was the gate? Waiting: Seconds seemed hours.
+"Darrin! There!" Niles pointed at the cipher. It discharged a bolt of light that contacted Marian. She screamed, painfully, and excruciatingly but it was barely audible above the electrical noise. The gate, where was the gate? Waiting: Seconds seemed hours.
 
-A flat light appeared on the floor before the cipher. It rose oddly as a
-cube---it didn't do that last time, or am I not remembering correctly?
-Yes, that was correct, it was not spherical, but cubic---soon the gate
-would be opened. Niles stood gaping while Uncler had stepped back from
-his position to get a better view of what was happening from my
-viewpoint. Marian's screams had ceased. I made a mental note---these
-psychotropics are *much* better than the old.
+A flat light appeared on the floor before the cipher. It rose oddly as a cube---it didn't do that last time, or am I not remembering correctly? Yes, that was correct, it was not spherical, but cubic---soon the gate would be opened. Niles stood gaping while Uncler had stepped back from his position to get a better view of what was happening from my viewpoint. Marian's screams had ceased. I made a mental note---these psychotropics are *much* better than the old.
 
-The cube rose, its shape was still odd, it seemed to be fracturing into
-a more complex octahedral form, which I knew could *not* be correct. A
-six-sided form represented a stable dimensional link, a clean resonant
-transport, any deviation meant an error, which is why it *could have
-never* been spherical. There must be a problem with the flow of current,
-it was surging. The leak in the cage. I needed to compensate for it. I
-adjusted the pulse rise time to clean it up. That did the trick. The
-cube continued to rise; at the height of two meters, I would have to
-stabilize the cipher's resonance---having to set it perfectly. Almost
-there.
+The cube rose, its shape was still odd, it seemed to be fracturing into a more complex octahedral form, which I knew could *not* be correct. A six-sided form represented a stable dimensional link, a clean resonant transport, any deviation meant an error, which is why it *could have never* been spherical. There must be a problem with the flow of current, it was surging. The leak in the cage. I needed to compensate for it. I adjusted the pulse rise time to clean it up. That did the trick. The cube continued to rise; at the height of two meters, I would have to stabilize the cipher's resonance---having to set it perfectly. Almost there.
 
-"Sam, adjust the pitch to eighteen degrees." I noticed he was standing
-toward the front of the machine staring at the cube. He's going to mess
-up the whole experiment.
+"Sam, adjust the pitch to eighteen degrees." I noticed he was standing toward the front of the machine staring at the cube. He's going to mess up the whole experiment.
 
-"Sam! Eighteen degrees, now!" He ran back to his positon and set it
-thus.
+"Sam! Eighteen degrees, now!" He ran back to his positon and set it thus.
 
-I was still having trouble with the current leakage. The ammeter was
-starting to bounce, the cube looked almost liquid. Something was
-definitely amiss.
+I was still having trouble with the current leakage. The ammeter was starting to bounce, the cube looked almost liquid. Something was definitely amiss.
 
 "Sam, nineteen degrees. And do it slowly."
 
-I adjusted the pulse fall time, but it didn't seem to help. A cloud of
-smoke and a buzzing from the panel. The overload warning indicator was
-flashing. The ammeter was jumping all over the scale. The cube started
-to dissipate. The generator had overheated, smoke enveloped it. The cube
-quickly dropped to the floor and disappeared. A sick metallic grinding
-sound, and the generator came to a dead stop. The sequence automatically
-terminated, system automatically shut down. The light extinguished as if
-it were a candle that had just been put out.
+I adjusted the pulse fall time, but it didn't seem to help. A cloud of smoke and a buzzing from the panel. The overload warning indicator was flashing. The ammeter was jumping all over the scale. The cube started to dissipate. The generator had overheated, smoke enveloped it. The cube quickly dropped to the floor and disappeared. A sick metallic grinding sound, and the generator came to a dead stop. The sequence automatically terminated, system automatically shut down. The light extinguished as if it were a candle that had just been put out.
 
 Silence. The cipher glowed with a slow pulsing supernatural light.
 
-I slammed my hand on the panel. "Shit!" I rubbed my forehead. It had to
-be the damage to the cage, the leaking current, there was not enough
-containment of the resonant energy, it was like a bowl with a hole too
-big to hold water long enough to drink form. I leaned against the panel,
-trying to think. Uncler and Niles joined me. The smell of burnt flesh
-and ozone hung in the still air.
+I slammed my hand on the panel. "Shit!" I rubbed my forehead. It had to be the damage to the cage, the leaking current, there was not enough containment of the resonant energy, it was like a bowl with a hole too big to hold water long enough to drink form. I leaned against the panel, trying to think. Uncler and Niles joined me. The smell of burnt flesh and ozone hung in the still air.
 
-"The generator's blown, Niles said. We'll need to fix it and probably
-add a few more transformers to stabilize its output."
+"The generator's blown, Niles said. We'll need to fix it and probably add a few more transformers to stabilize its output."
 
 Uncler nodded. "I agree. What happened Darrin?"
 
-"There is some damage to the Faraday cage, it's leaking. Which one of
-you geniuses fucked it up?"
+"There is some damage to the Faraday cage, it's leaking. Which one of you geniuses fucked it up?"
 
-Niles looked at Marian's burnt body with disgust and opened the cage. A
-hinge on the right side lay askew. "I didn't notice this before. Looks
-like the damage is recent."
+Niles looked at Marian's burnt body with disgust and opened the cage. A hinge on the right side lay askew. "I didn't notice this before. Looks like the damage is recent."
 
-I stood from my chair and paced over to Marian's body. Her arms had
-separated at the wrists, her body lay in a twisted, blackened,
-indefinable heap. She had been too fragile; it was possible that when
-she had separated, the circuit had been broken, thereby overloading the
-generator. The cage was one thing, but I was certain the adjustments I
-had made with the pulses were compensating, by the frequency enforcing
-containment. Quite possible. Uncler walked with me. He tapped me on the
-shoulder and handed me two tablets in an aluminum wrapper.
+I stood from my chair and paced over to Marian's body. Her arms had separated at the wrists, her body lay in a twisted, blackened, indefinable heap. She had been too fragile; it was possible that when she had separated, the circuit had been broken, thereby overloading the generator. The cage was one thing, but I was certain the adjustments I had made with the pulses were compensating, by the frequency enforcing containment. Quite possible. Uncler walked with me. He tapped me on the shoulder and handed me two tablets in an aluminum wrapper.
 
 "Next time it'll be easier with these."
 
-I thrust my hand into my pocket. "So *that's* your secret to making
-friends."
+I thrust my hand into my pocket. "So *that's* your secret to making friends."
 
-We both had a good laugh. Niles looked on confusedly. I didn't care
-about the particulars of the scene before me, especially the dead body,
-that was not my problem. That was Uncler's. I was consumed with the
-failure at hand. I *really* wanted it to be over.
+We both had a good laugh. Niles looked on confusedly. I didn't care about the particulars of the scene before me, especially the dead body, that was not my problem. That was Uncler's. I was consumed with the failure at hand. I *really* wanted it to be over.
 
-"I need someone with a stronger frame for the next go." I looked to
-Uncler then setting my eyes on Niles' stocky build. He was sickly pale,
-anxiously looking at the gauges on the panel. "And replace the nylon
-rope with something more robust---leather please, but be sure there is
-no conductivity whatsoever." I tugged at my lip. My mind was racing a
-mile a minute---I was *so* close to finishing. I could feel the old
-obsession consuming me as it had before. I should have realized that
-continuing this work would be dangerous, but I didn't care. Three years
-ago I had *finished* the work, seen their world and they mine. But I
-chickened out and tried to short-circuit the whole thing, leaving a part
-of myself in their universe, fracturing me. How stupid, to having
-partially gone through before deciding to turn back and close the gate
-without the proper procedure---I panicked and now a part of me is a part
-of them and vice-versa.
+"I need someone with a stronger frame for the next go." I looked to Uncler then setting my eyes on Niles' stocky build. He was sickly pale, anxiously looking at the gauges on the panel. "And replace the nylon rope with something more robust---leather please, but be sure there is no conductivity whatsoever." I tugged at my lip. My mind was racing a mile a minute---I was *so* close to finishing. I could feel the old obsession consuming me as it had before. I should have realized that continuing this work would be dangerous, but I didn't care. Three years ago I had *finished* the work, seen their world and they mine. But I chickened out and tried to short-circuit the whole thing, leaving a part of myself in their universe, fracturing me. How stupid, to having partially gone through before deciding to turn back and close the gate without the proper procedure---I panicked and now a part of me is a part of them and vice-versa.
 
 Uncler cracked his knuckles. "What's the plan?"
 
 The problem nagged at me, beating a continuous monotonous rhythm.
 
-"We need to fix the cage and install the new transformers like Niles
-said. Somebody has to dispose of the body." I paused with a maniacal
-spirit. "And we'll need a new connection in the circuit."
+"We need to fix the cage and install the new transformers like Niles said. Somebody has to dispose of the body." I paused with a maniacal spirit. "And we'll need a new connection in the circuit."
 
-"Yes, I agree," Sam nodded, a blank expression on his face. "But we need
-to clean up around here. He looked around to a set of wooden boxes in a
-corner of the room which was used to ship the large transformers and
-electric motors the laboratory used.
+"Yes, I agree," Sam nodded, a blank expression on his face. "But we need to clean up around here. He looked around to a set of wooden boxes in a corner of the room which was used to ship the large transformers and electric motors the laboratory used.
 
-"We could put the body in one of those boxes and then it would be easier
-to dispose of it. In its condition, I don't think anyone would be able
-to recognize it *as* a body. Then we could take it to the chemical waste
-storage facility in building seven and dissolve it. You go back to my
-place, Darrin. Niles and I will take care of the body."
+"We could put the body in one of those boxes and then it would be easier to dispose of it. In its condition, I don't think anyone would be able to recognize it *as* a body. Then we could take it to the chemical waste storage facility in building seven and dissolve it. You go back to my place, Darrin. Niles and I will take care of the body."
 
-"What about the next set of experiments? I mean once the cage is
-repaired and the transformers installed? We'll need another
-participant."
+"What about the next set of experiments? I mean once the cage is repaired and the transformers installed? We'll need another participant."
 
 Sam looked at Niles and eyed him up and down. He stepped back.
 
 "No, not me!" He exclaimed.
 
-"I know, don't worry," Sam said. "We need three of us to operate the
-machine."
+"I know, don't worry," Sam said. "We need three of us to operate the machine."
 
-"Definitely no. I want to be *sure* we can keep the connection solid. We
-will need an oversized person." I immediately thought of Frank.
+"Definitely no. I want to be *sure* we can keep the connection solid. We will need an oversized person." I immediately thought of Frank.
 
 "You have any ideas, Darrin?"
 
@@ -2884,65 +1688,25 @@ will need an oversized person." I immediately thought of Frank.
 
 \* \* \* \* \*
 
-It was almost four in the morning when I arrived home. Yes, Sam told me
-to go to his place, but I wasn't in the mood to heed his advice. The
-house was dark when I arrived---not a single light was on. Marian's note
-was still on the table. No Frank. I fact, I couldn't remember the last
-time I had seen him. There would be more waiting, but I could be
-patient. Scientific success is a hard-fought battle won by the
-accomplishments of genius---soon, very soon.
+It was almost four in the morning when I arrived home. Yes, Sam told me to go to his place, but I wasn't in the mood to heed his advice. The house was dark when I arrived---not a single light was on. Marian's note was still on the table. No Frank. I fact, I couldn't remember the last time I had seen him. There would be more waiting, but I could be patient. Scientific success is a hard-fought battle won by the accomplishments of genius---soon, very soon.
 
-Time passed. It was nearly dawn. I had stopped checking the clock a long
-time before. I was tired, but still obsessed with my plan. If I could
-just catch a few hours' sleep, then I would feel better, and perhaps
-Frank would be back by morning. I laid down to settle to sleep and
-closed my eyes. Instead of peaceful blackness, I saw many brightly
-colored lights; they flashed before my eyes like a carousel. I
-concentrated on them, trying to form shapes---if I could tire my mind,
-then maybe I could sleep. I saw Uncler's face, his expression twisted,
-his smile malevolent. I thrust open my eyes. I heard a sound similar to
-the hum of the generator powering up to activate the cipher. The sound
-changed in pitch and grew louder; I gritted my teeth and held my hands
-over my ears. Stop. Stop. Louder and louder, my eardrums felt ready to
-burst.
+Time passed. It was nearly dawn. I had stopped checking the clock a long time before. I was tired, but still obsessed with my plan. If I could just catch a few hours' sleep, then I would feel better, and perhaps Frank would be back by morning. I laid down to settle to sleep and closed my eyes. Instead of peaceful blackness, I saw many brightly colored lights; they flashed before my eyes like a carousel. I concentrated on them, trying to form shapes---if I could tire my mind, then maybe I could sleep. I saw Uncler's face, his expression twisted, his smile malevolent. I thrust open my eyes. I heard a sound similar to the hum of the generator powering up to activate the cipher. The sound changed in pitch and grew louder; I gritted my teeth and held my hands over my ears. Stop. Stop. Louder and louder, my eardrums felt ready to burst.
 
-"Leave me alone! I'm doing all I can! Look, I know, I take
-responsibility that I planned it badly, but next time I promise it will
-be successful."
+"Leave me alone! I'm doing all I can! Look, I know, I take responsibility that I planned it badly, but next time I promise it will be successful."
 
-I felt as if they were torturing me, at least a part of me. I felt as if
-stuck in a room which was constantly humming, vibrating my entire form
-which was driving me crazy. The hum steadied, as if to acknowledge my
-recognition of it. They were trying to manipulate me and I knew it. The
-others, they were keen to see the gate opened, properly this time. Frank
-still wasn't home. Anything that could be done without him would render
-inefficacy. Still, the hum continued with piercing amplitude.
+I felt as if they were torturing me, at least a part of me. I felt as if stuck in a room which was constantly humming, vibrating my entire form which was driving me crazy. The hum steadied, as if to acknowledge my recognition of it. They were trying to manipulate me and I knew it. The others, they were keen to see the gate opened, properly this time. Frank still wasn't home. Anything that could be done without him would render inefficacy. Still, the hum continued with piercing amplitude.
 
-Relax, cease the noise, control. You are here and not there. They were
-trying to drive me out of my mind. They knew how, knew very well, but I
-was stronger. I was the one in control. I performed the experiments. I
-opened the gate.
+Relax, cease the noise, control. You are here and not there. They were trying to drive me out of my mind. They knew how, knew very well, but I was stronger. I was the one in control. I performed the experiments. I opened the gate.
 
-"You have to wait, you fucks," I laughed loudly. "Kiss my fucking ass,
-I'm the master, and if I decide to scrap the cipher, then you're
-fucked." Torture me all you want, keep me cold, keep me hot, cut me to a
-thousand ribbons, I don't care, *you cannot control me*. I laughed
-again, this time at the top of my lungs.
+"You have to wait, you fucks," I laughed loudly. "Kiss my fucking ass, I'm the master, and if I decide to scrap the cipher, then you're fucked." Torture me all you want, keep me cold, keep me hot, cut me to a thousand ribbons, I don't care, *you cannot control me*. I laughed again, this time at the top of my lungs.
 
-I must've fallen deep asleep sometime after that because I don't
-remember anything until I noticed a feeble light in my eyes. I opened
-them and the sun was streaming through the dirty little window in my
-sordid room, but the scene was wavy, like the heat was turned way, way
-up, although I didn't feel it. The phone rang.
+I must've fallen deep asleep sometime after that because I don't remember anything until I noticed a feeble light in my eyes. I opened them and the sun was streaming through the dirty little window in my sordid room, but the scene was wavy, like the heat was turned way, way up, although I didn't feel it. The phone rang.
 
-"Darrin, what are you doing home?" It was Sam. "I told you to go to my
-place."
+"Darrin, what are you doing home?" It was Sam. "I told you to go to my place."
 
-"What? What are you saying to me?" The room was starting to shake and
-quiver as if bobbing at the end of a tether.
+"What? What are you saying to me?" The room was starting to shake and quiver as if bobbing at the end of a tether.
 
-"Well, I've got some bad news, the transformers have to be made and it
-will take a week. We're shelving the project until then."
+"Well, I've got some bad news, the transformers have to be made and it will take a week. We're shelving the project until then."
 
 "What did you say, a week?"
 
@@ -2952,69 +1716,35 @@ will take a week. We're shelving the project until then."
 
 "You'll have to wait it out."
 
-"Why are you so fucking nonchalant about it? A delay is out of the
-question. I thought you were as obsessed as I?"
+"Why are you so fucking nonchalant about it? A delay is out of the question. I thought you were as obsessed as I?"
 
-"What gave you that idea? The machine, your theory doesn't work. It's
-but melodramatic way to murder people."
+"What gave you that idea? The machine, your theory doesn't work. It's but melodramatic way to murder people."
 
 "What? This isn't Uncler. Who is this?"
 
-"You know who. I don't want to see you around the lab. You're insane,
-brutally so, fucking bonkers. Don't contact me and don't come by the lab
-anymore."
+"You know who. I don't want to see you around the lab. You're insane, brutally so, fucking bonkers. Don't contact me and don't come by the lab anymore."
 
 "Sam..?"
 
-"If you do, you'll be arrested at the gate, charged with first-degree
-murder, and thrown back into the loony bin, you fucking psycho."
+"If you do, you'll be arrested at the gate, charged with first-degree murder, and thrown back into the loony bin, you fucking psycho."
 
 "Sam, what the hell is going on?"
 
-The phone went dead. I stared off into the bleakness of the kitchen. The
-walls started to melt and the floor switched patterns as if in a
-kaleidoscope. I fell to the floor.
+The phone went dead. I stared off into the bleakness of the kitchen. The walls started to melt and the floor switched patterns as if in a kaleidoscope. I fell to the floor.
 
 \* \* \* \* \*
 
-In the blackness of the mind you don't have any bearing on reality. This
-must be what it's like for people who are in a coma. I heard sounds and
-I felt movements. I heard the faint mewing of animals and people rousing
-in a theater. I remember seeing the world from above, as if floating,
-trees and landscape below. A world without people. My back felt hot, the
-back of my legs warming slowly as if mounted on something dangling over
-an open flame. While comforting at first, the pain started becoming
-unbearable. I could feel my eyelids. I needed to open them.
+In the blackness of the mind you don't have any bearing on reality. This must be what it's like for people who are in a coma. I heard sounds and I felt movements. I heard the faint mewing of animals and people rousing in a theater. I remember seeing the world from above, as if floating, trees and landscape below. A world without people. My back felt hot, the back of my legs warming slowly as if mounted on something dangling over an open flame. While comforting at first, the pain started becoming unbearable. I could feel my eyelids. I needed to open them.
 
-The sun hit my eyes and I was blinded by it. I raised my arm to shield
-myself from the light. My body ached and I couldn't feel my legs, other
-than the feeling of hot. I slowly managed to sit myself up and noticed I
-was in my own bed. As I realized I must be awake, I rubbed my eyes and
-tried to focus my vision. I noticed that I had trashed my room---at
-least I *think* it *must have been* me. All the books were thrown to the
-floor; the crates serving as a bookshelf lay across one of my legs,
-cutting off circulation. With my free leg, I shoved it off the bed. I
-managed to get myself to stand and waited for the feeling to return to
-my leg, which now felt like pins and needles. I hope it hadn't been cut
-off from blood circulation too long, I still needed it to get around.
+The sun hit my eyes and I was blinded by it. I raised my arm to shield myself from the light. My body ached and I couldn't feel my legs, other than the feeling of hot. I slowly managed to sit myself up and noticed I was in my own bed. As I realized I must be awake, I rubbed my eyes and tried to focus my vision. I noticed that I had trashed my room---at least I *think* it *must have been* me. All the books were thrown to the floor; the crates serving as a bookshelf lay across one of my legs, cutting off circulation. With my free leg, I shoved it off the bed. I managed to get myself to stand and waited for the feeling to return to my leg, which now felt like pins and needles. I hope it hadn't been cut off from blood circulation too long, I still needed it to get around.
 
-It was a colossal task dragging myself to the kitchen. My thoughts were
-on the call from Uncler. I was trembling violently from fear, fear that
-I wouldn't be able to finish my work and see the cipher to completion. I
-didn't want to end up like my father, broken and disheartened,
-desperately trying to hold onto life, only to end it by my own hand.
+It was a colossal task dragging myself to the kitchen. My thoughts were on the call from Uncler. I was trembling violently from fear, fear that I wouldn't be able to finish my work and see the cipher to completion. I didn't want to end up like my father, broken and disheartened, desperately trying to hold onto life, only to end it by my own hand.
 
-I tripped over the corner of the baseboard and fell to the linoleum. I
-reached for the phone cord and pulled it; the receiver fell from the
-counter to the floor. I dialed the lab, the number engraved in my
-memory. I got Niles.
+I tripped over the corner of the baseboard and fell to the linoleum. I reached for the phone cord and pulled it; the receiver fell from the counter to the floor. I dialed the lab, the number engraved in my memory. I got Niles.
 
 "Is Uncler there?"
 
-"No. He went home to get some sleep. We managed to clean everything up
-this morning. The transformers are on their way and should be installed
-later today. I managed to weld the hinge back onto the cage, so that is
-repaired. We should be ready to go by tomorrow. I suggest we meet then."
+"No. He went home to get some sleep. We managed to clean everything up this morning. The transformers are on their way and should be installed later today. I managed to weld the hinge back onto the cage, so that is repaired. We should be ready to go by tomorrow. I suggest we meet then."
 
 "Where?"
 
@@ -3022,21 +1752,15 @@ There was a long pause and I heard an audible sigh. "Here, stupid."
 
 I rubbed my eyes, my head was full of confusion. "What day is it?"
 
-"Thursday. If you don't mind, I suggest you come here tomorrow, Friday,
-at eleven in the evening. Most of the staff will be away for the weekend
-and we'll be able to conduct the experiment without distraction."
+"Thursday. If you don't mind, I suggest you come here tomorrow, Friday, at eleven in the evening. Most of the staff will be away for the weekend and we'll be able to conduct the experiment without distraction."
 
 "The experiment?"
 
 "Of course. What else?"
 
-*Something* was going on, at this point I wasn't sure if the
-conversation with Uncler took place at all. I couldn't trust my senses,
-couldn't trust anything that was going on.
+*Something* was going on, at this point I wasn't sure if the conversation with Uncler took place at all. I couldn't trust my senses, couldn't trust anything that was going on.
 
-"Listen, Niles, if he comes in, have him call me. I have one more detail
-to clear up here, and I'll meet you tomorrow evening with the new
-participant."
+"Listen, Niles, if he comes in, have him call me. I have one more detail to clear up here, and I'll meet you tomorrow evening with the new participant."
 
 "So you have that item taken care of? Uncler said you would."
 
@@ -3044,37 +1768,13 @@ participant."
 
 "Never you mind. Goodbye."
 
-He hung up. I pulled myself to a standing position. During the call, my
-leg started to get feeling back in it. Apparently the circulation was
-not cut off too long. I walked one step at a time to the bathroom. I
-needed a shower, or better yet a bath. When I reached the door, just
-before grabbing the knob, I remember the cat I drowned in it. I'll need
-to bury it in the yard. More work to do. I grabbed the knob and the door
-was unlocked. Strange. I slowly turned the knob and peered around the
-door, opening it carefully, as if not to make a sound. The cat was gone.
-The water had been drained out of the tub, not even a trace of a smell.
-I wondered where my book I used to hold down the cat had gone to. I
-checked my arm for the scratches, yes they were there, the wound looking
-terrible under the bandage. I showered---no patience for a
-bath---disinfected the wound, put on a new bandage. Once I cleaned it,
-it didn't seem as bad as when I first saw it. I shut myself in my room
-and waited.
+He hung up. I pulled myself to a standing position. During the call, my leg started to get feeling back in it. Apparently the circulation was not cut off too long. I walked one step at a time to the bathroom. I needed a shower, or better yet a bath. When I reached the door, just before grabbing the knob, I remember the cat I drowned in it. I'll need to bury it in the yard. More work to do. I grabbed the knob and the door was unlocked. Strange. I slowly turned the knob and peered around the door, opening it carefully, as if not to make a sound. The cat was gone. The water had been drained out of the tub, not even a trace of a smell. I wondered where my book I used to hold down the cat had gone to. I checked my arm for the scratches, yes they were there, the wound looking terrible under the bandage. I showered---no patience for a bath---disinfected the wound, put on a new bandage. Once I cleaned it, it didn't seem as bad as when I first saw it. I shut myself in my room and waited.
 
-It was well after ten that night when I heard a car pulling up. It was
-an old car, with loud exhaust. It rumbled in the driveway after being
-turned off, the sick sound of dieseling of the engine. The front door
-was thrown open. I sat up like a shot and frantically dug through my
-pants pockets, searching for the tablets Uncler gave me. I set them
-under the futon. I heard Frank mumbling incoherently in the kitchen,
-rifling through the refrigerator and placing something in the microwave.
-I straightened myself and went out.
+It was well after ten that night when I heard a car pulling up. It was an old car, with loud exhaust. It rumbled in the driveway after being turned off, the sick sound of dieseling of the engine. The front door was thrown open. I sat up like a shot and frantically dug through my pants pockets, searching for the tablets Uncler gave me. I set them under the futon. I heard Frank mumbling incoherently in the kitchen, rifling through the refrigerator and placing something in the microwave. I straightened myself and went out.
 
 "Frank? Hi, haven't seen you in a while."
 
-"Yeah, you neither. What's up?" the microwave bell rang and he pulled
-out a burrito. It steamed on the plate as he placed it on the kitchen
-table. I noticed a beer was sitting beside it. He sat down and began
-eating ferociously, as if he hadn't in some time.
+"Yeah, you neither. What's up?" the microwave bell rang and he pulled out a burrito. It steamed on the plate as he placed it on the kitchen table. I noticed a beer was sitting beside it. He sat down and began eating ferociously, as if he hadn't in some time.
 
 "I need to talk to you."
 
@@ -3082,237 +1782,107 @@ eating ferociously, as if he hadn't in some time.
 
 "What are you doing tomorrow evening?"
 
-He shoved a third of the burrito into his mouth and talked through his
-chewing.
+He shoved a third of the burrito into his mouth and talked through his chewing.
 
-"I was supposed to go to a party, but it was already last night. I
-haven't slept at all. You want to come?"
+"I was supposed to go to a party, but it was already last night. I haven't slept at all. You want to come?"
 
 "I was thinking we could do something else."
 
 "Like what?" He took a long drink of his beer.
 
-"There's something I want to show you. Then afterwards, we could go for
-a drink or something. We haven't hung out in a while, you know?"
+"There's something I want to show you. Then afterwards, we could go for a drink or something. We haven't hung out in a while, you know?"
 
-"True," he belched loudly, smiling in satisfaction. "That could be fun.
-If we get bored, we can go to that party I've been invited to. There'll
-be lots of girls, I'm sure you can meet somebody."
+"True," he belched loudly, smiling in satisfaction. "That could be fun. If we get bored, we can go to that party I've been invited to. There'll be lots of girls, I'm sure you can meet somebody."
 
 "What about Marian?"
 
-"We don't go out anymore, in fact, I haven't seen her in a week. Have
-you?"
+"We don't go out anymore, in fact, I haven't seen her in a week. Have you?"
 
 I shook my head. "No, me neither."
 
-"She's got her own life." He finished the remainder of his burrito and
-downed the beer. "I'm tired. I want to go to bed." He got up and
-stumbled past me. "Night."
+"She's got her own life." He finished the remainder of his burrito and downed the beer. "I'm tired. I want to go to bed." He got up and stumbled past me. "Night."
 
 "Good night, see you tomorrow."
 
-I heard him in the bathroom and then slam his bedroom door. His heavy
-frame came down on the bed, it shrieked in protest. I stood in the
-kitchen and sat at the table across from the remnants of food he left at
-his place. The light from the single bulb above the table burned my
-eyes. What to do until then? I got up from the table, turned out the
-light, and went to the living room. I snapped on the TV and sat on the
-couch. Got time to kill. I sat for an unknown time starting at the
-screen, then noticed the cup on the coffee table. The marijuana, that
-should keep me occupied. I reached under the couch and found Marian's
-stash, there was a lighter on the coffee table, but no pipe. It was
-probably still in her purse, or, maybe in her room. I stood up and went
-to her room, passing by Frank's hearing him snore loudly and searched
-for it, no luck. I then remembered the tablets Uncler gave me. They were
-wrapped in aluminum foil, if there was enough material, I could make a
-pipe out of it with a pencil. Innovation and I were no stranger! I went
-to my room and took the package from under the futon. I unwrapped the
-tablets, dumping them on the bed and unfolded the foil. It was just
-about the right length and width to do the job. I took one of my drawing
-pencils and made a pipe. I used a mechanical eraser to neatly fold the
-edges---it was ready.
+I heard him in the bathroom and then slam his bedroom door. His heavy frame came down on the bed, it shrieked in protest. I stood in the kitchen and sat at the table across from the remnants of food he left at his place. The light from the single bulb above the table burned my eyes. What to do until then? I got up from the table, turned out the light, and went to the living room. I snapped on the TV and sat on the couch. Got time to kill. I sat for an unknown time starting at the screen, then noticed the cup on the coffee table. The marijuana, that should keep me occupied. I reached under the couch and found Marian's stash, there was a lighter on the coffee table, but no pipe. It was probably still in her purse, or, maybe in her room. I stood up and went to her room, passing by Frank's hearing him snore loudly and searched for it, no luck. I then remembered the tablets Uncler gave me. They were wrapped in aluminum foil, if there was enough material, I could make a pipe out of it with a pencil. Innovation and I were no stranger! I went to my room and took the package from under the futon. I unwrapped the tablets, dumping them on the bed and unfolded the foil. It was just about the right length and width to do the job. I took one of my drawing pencils and made a pipe. I used a mechanical eraser to neatly fold the edges---it was ready.
 
-Back in the living room I sat packing small amounts of marijuana into
-the pipe smoking and smoking as images unfolded on the TV. Soon I didn't
-seem to mind the ludicrous stories or the pedantic comedies. I was
-laughing, silly at first, then I started to feel better. Good, in fact.
-Better than I had felt in years.
+Back in the living room I sat packing small amounts of marijuana into the pipe smoking and smoking as images unfolded on the TV. Soon I didn't seem to mind the ludicrous stories or the pedantic comedies. I was laughing, silly at first, then I started to feel better. Good, in fact. Better than I had felt in years.
 
-Soon the entertainment value of the TV waned. I started flipping the
-channels one to the next, nothing was on and I was getting bored. As I
-was ready to turn it off, I saw the note Marian left for Frank on the
-table. I'd been sitting here for hours and hadn't noticed it. Luckily,
-neither had Frank. I snatched it up and read what it said.
+Soon the entertainment value of the TV waned. I started flipping the channels one to the next, nothing was on and I was getting bored. As I was ready to turn it off, I saw the note Marian left for Frank on the table. I'd been sitting here for hours and hadn't noticed it. Luckily, neither had Frank. I snatched it up and read what it said.
 
-'Frank, going to dinner with Darrin. Let's catch up later. Love,
-Marian.'
+'Frank, going to dinner with Darrin. Let's catch up later. Love, Marian.'
 
-Her handwriting was incredible, neat and cleanly-spaced cursive letters.
-A mark of a tidy, highly-intelligent mind. I could never write so well,
-my handwriting was so bad, I couldn't even read it, which makes me
-wonder how Uncler could have understood *anything* that was contained in
-my experimental notes. Maybe he was able to interpret the meaning from
-the drawings and pictograms. It was all starting to make sense how he
-could know so much about my work, yet know so little. I neatly folded
-the note, put it in my pocket, turned off the TV and went to bed.
+Her handwriting was incredible, neat and cleanly-spaced cursive letters. A mark of a tidy, highly-intelligent mind. I could never write so well, my handwriting was so bad, I couldn't even read it, which makes me wonder how Uncler could have understood *anything* that was contained in my experimental notes. Maybe he was able to interpret the meaning from the drawings and pictograms. It was all starting to make sense how he could know so much about my work, yet know so little. I neatly folded the note, put it in my pocket, turned off the TV and went to bed.
 
-It wasn't until breakfast time the next day that I realized I slept like
-a baby. No dreams, no nightmares, no voices, no pain, no anguish.
-Nothing but pure bliss in blackness and nothingness. It was getting on
-toward noon when Frank came out of his room. Saying nothing, he went to
-the bathroom and I heard the shower running. He came out dressed in
-fresh clothes and went to a cabinet, then to the refrigerator.
+It wasn't until breakfast time the next day that I realized I slept like a baby. No dreams, no nightmares, no voices, no pain, no anguish. Nothing but pure bliss in blackness and nothingness. It was getting on toward noon when Frank came out of his room. Saying nothing, he went to the bathroom and I heard the shower running. He came out dressed in fresh clothes and went to a cabinet, then to the refrigerator.
 
 "Fuck. I got a wicked hangover. I can't go to work today."
 
 "I feel pretty good. Found Marian's stash last night. It's dynamite."
 
-"Tell me about it. She gets *the best*. I cannot figure where she gets
-it. I've smoked nothing like it." He made himself a bowl of cereal
-bringing it and the milk container to the kitchen table across from me
-sitting in the same place he had the night before. I had picked up the
-mess he had made.
+"Tell me about it. She gets *the best*. I cannot figure where she gets it. I've smoked nothing like it." He made himself a bowl of cereal bringing it and the milk container to the kitchen table across from me sitting in the same place he had the night before. I had picked up the mess he had made.
 
 "What time you want to go out tonight?" He asked.
 
-"Oh, about nine-thirty. The place is about an hour's drive from here.
-But I'll need to stop by and pick something up before."
+"Oh, about nine-thirty. The place is about an hour's drive from here. But I'll need to stop by and pick something up before."
 
 "If it's far, my car won't make it."
 
 "We'll take mine."
 
-"Excellent." He finished his cereal and put the empty bowl in the sink.
-The milk carton was still at the table. "You want some coffee? I'm going
-to make a pot."
+"Excellent." He finished his cereal and put the empty bowl in the sink. The milk carton was still at the table. "You want some coffee? I'm going to make a pot."
 
 "That sounds good, perfect in fact."
 
-We sat together for a bit of time drinking coffee and talking about the
-funny chaos that used to go on at the asylum, although Frank insisted
-constantly on calling it *the hospital*. As the conversation started to
-wane and topics became exhausted, we started to talk about them from the
-beginning. I never spoke about what I did, Frank never knew my work at
-the university or the laboratory.
+We sat together for a bit of time drinking coffee and talking about the funny chaos that used to go on at the asylum, although Frank insisted constantly on calling it *the hospital*. As the conversation started to wane and topics became exhausted, we started to talk about them from the beginning. I never spoke about what I did, Frank never knew my work at the university or the laboratory.
 
-"This is great fun, like the old days," he chortled. "Hey, you wouldn't
-happen to have any of that weed Marian had, would you? I would *love* a
-joint right about now."
+"This is great fun, like the old days," he chortled. "Hey, you wouldn't happen to have any of that weed Marian had, would you? I would *love* a joint right about now."
 
-"Certainly, let me go get it." I went for the living room and I heard
-him getting up from the table and going to his room. When I came back to
-the kitchen and sat down, he arrived with some rolling papers and a
-lighter. I had my aluminum pipe and the bag of marijuana from under the
-couch set on the table before me, next to my empty coffee cup. He
-glanced down at it and resumed sitting across from me.
+"Certainly, let me go get it." I went for the living room and I heard him getting up from the table and going to his room. When I came back to the kitchen and sat down, he arrived with some rolling papers and a lighter. I had my aluminum pipe and the bag of marijuana from under the couch set on the table before me, next to my empty coffee cup. He glanced down at it and resumed sitting across from me.
 
-"That's a great idea, but I like rolling my own." He opened the bag and
-took out a portion, breaking in into smaller bits on the table before
-him. I took a portion for myself and did something similar, except my
-bits were not as small as his. When he'd finished rolling, we sat
-staring at each other, he with the joint, me with the aluminum pipe
-stuffed in our mouths each of our hands containing a lighter.
+"That's a great idea, but I like rolling my own." He opened the bag and took out a portion, breaking in into smaller bits on the table before him. I took a portion for myself and did something similar, except my bits were not as small as his. When he'd finished rolling, we sat staring at each other, he with the joint, me with the aluminum pipe stuffed in our mouths each of our hands containing a lighter.
 
-"You ready?" He quipped. I nodded. We lit our respective smoking
-apparatus simultaneously taking a deep drag while watching each other.
-It was a ritual from those times, a means to connect. Then we did it
-when we were given our pills, now it was a different kind of medication.
-When he'd finished inhaling, he took the joint out of his mouth and
-inspected it carefully.
+"You ready?" He quipped. I nodded. We lit our respective smoking apparatus simultaneously taking a deep drag while watching each other. It was a ritual from those times, a means to connect. Then we did it when we were given our pills, now it was a different kind of medication. When he'd finished inhaling, he took the joint out of his mouth and inspected it carefully.
 
 "Man, Darrin, I *love* this stuff. I have no idea where she got it."
 
-I couldn't imagine either, soon the feeling had me drifting away from
-the problems which plagued my mind.
+I couldn't imagine either, soon the feeling had me drifting away from the problems which plagued my mind.
 
-"I could smoke this all day," he continued. "I don't have anywhere to be
-today."
+"I could smoke this all day," he continued. "I don't have anywhere to be today."
 
-And so it was. We sat in the kitchen and smoked. We went to the living
-room and smoked. We even went out to the back yard and I showed him the
-cellar where I had found the cat. We laughed and laughed and laughed. We
-laughed about our lives, we laughed about the hospital, we laughed about
-what set of emotions put us there, we laughed at the television, and we
-laughed about nothing. Soon it was getting to be evening. We ordered a
-pizza for delivery, then smoked some more. All the while the clock
-approaching the time to leave for the laboratory. At seven-thirty I
-decided to stop smoking while Frank continued. The bag was getting to be
-empty, we probably smoked five grams between us. Soon the clock edged to
-nine.
+And so it was. We sat in the kitchen and smoked. We went to the living room and smoked. We even went out to the back yard and I showed him the cellar where I had found the cat. We laughed and laughed and laughed. We laughed about our lives, we laughed about the hospital, we laughed about what set of emotions put us there, we laughed at the television, and we laughed about nothing. Soon it was getting to be evening. We ordered a pizza for delivery, then smoked some more. All the while the clock approaching the time to leave for the laboratory. At seven-thirty I decided to stop smoking while Frank continued. The bag was getting to be empty, we probably smoked five grams between us. Soon the clock edged to nine.
 
 "We have to go soon," I noted. Frank nodded.
 
-"Okay, I'll go get on some decent clothes." He went to his room and I
-did the same. A fresh set of clothes would set everything right, the
-last set if I was lucky enough. The day was one of childhood wonder,
-emotion, and imagination. This was why I really liked Frank when we
-first met. He was so easy-going despite having very intense body issues
-because of his size. It didn't seem like he ate that much to cause such
-weight, but something biological, or glandular, as he would say. But we
-never stayed on topic of what made us crazy enough to be committed, that
-would be too much. We just wanted to forget about all the troubles of
-the world and enjoy it as if it was our last day.
+"Okay, I'll go get on some decent clothes." He went to his room and I did the same. A fresh set of clothes would set everything right, the last set if I was lucky enough. The day was one of childhood wonder, emotion, and imagination. This was why I really liked Frank when we first met. He was so easy-going despite having very intense body issues because of his size. It didn't seem like he ate that much to cause such weight, but something biological, or glandular, as he would say. But we never stayed on topic of what made us crazy enough to be committed, that would be too much. We just wanted to forget about all the troubles of the world and enjoy it as if it was our last day.
 
-We left the house at nine forty-five. Frank took his papers and the
-remainder of the bag with him. We left a bit late but there would be no
-traffic, I hoped. Late Friday night, who would be out? Not many, but an
-accident along the way kept us stuck. I was starting to become nervous
-and Frank seemed to notice. We stopped talking, he looked out the window
-into the darkness and the streetlamps passing one slow one at a time as
-we crawled our way to the university. As the traffic started to lighten
-up, I suddenly realized a grave mistake: I had left the tablets Uncler
-gave me on the futon in my room. My mind started racing to find an
-alternative solution.
+We left the house at nine forty-five. Frank took his papers and the remainder of the bag with him. We left a bit late but there would be no traffic, I hoped. Late Friday night, who would be out? Not many, but an accident along the way kept us stuck. I was starting to become nervous and Frank seemed to notice. We stopped talking, he looked out the window into the darkness and the streetlamps passing one slow one at a time as we crawled our way to the university. As the traffic started to lighten up, I suddenly realized a grave mistake: I had left the tablets Uncler gave me on the futon in my room. My mind started racing to find an alternative solution.
 
 "This is taking too long," Frank said. "I'm going to roll one up."
 
-While he was rolling, the solution presented itself. I remembered a
-meter's length of thick PVC pipe I had on the floor behind my seat. I
-always kept it there in case of problems while driving. I made it a
-short time after leaving the asylum, when I was accosted one day while
-driving. The experience shook me so much that I would feel better with a
-defensive weapon. I never had a chance to use it, though. Frank lit his
-joint and took deep drags from it. He handed it to me. I shook my head.
+While he was rolling, the solution presented itself. I remembered a meter's length of thick PVC pipe I had on the floor behind my seat. I always kept it there in case of problems while driving. I made it a short time after leaving the asylum, when I was accosted one day while driving. The experience shook me so much that I would feel better with a defensive weapon. I never had a chance to use it, though. Frank lit his joint and took deep drags from it. He handed it to me. I shook my head.
 
-"No." The smoke smelled divine, it reignited the feeling I had earlier,
-but I had to keep it together, tonight was very important. "Open the
-window, though," I told him.
+"No." The smoke smelled divine, it reignited the feeling I had earlier, but I had to keep it together, tonight was very important. "Open the window, though," I told him.
 
-Soon Frank was laughing hysterically in the car beside me. The marijuana
-had a more intense effect on him than me. I sure would have enjoyed one,
-had I not been driving. But I was busy nevertheless, my mind rehearsing
-over and over how I would execute plan 'B'. We arrived at the gate when
-my watch read twelve-thirty. I wasn't sure how it became so late so
-fast. The guard eyed me carefully. He knew I had come in with Marian the
-night before, but he never saw her leave with me. At least this is what
-I was thinking. I smiled broadly.
+Soon Frank was laughing hysterically in the car beside me. The marijuana had a more intense effect on him than me. I sure would have enjoyed one, had I not been driving. But I was busy nevertheless, my mind rehearsing over and over how I would execute plan 'B'. We arrived at the gate when my watch read twelve-thirty. I wasn't sure how it became so late so fast. The guard eyed me carefully. He knew I had come in with Marian the night before, but he never saw her leave with me. At least this is what I was thinking. I smiled broadly.
 
-"Be cool. These people are not cool like you and me." Frank nodded
-trying to contain himself.
+"Be cool. These people are not cool like you and me." Frank nodded trying to contain himself.
 
 "A little late, isn't it, Professor Jensen?" I didn't act surprised.
 
-"If you live in ordinary time, I suppose it is. But not for us." Frank
-started laughing again. The guard looked sternly at him.
+"If you live in ordinary time, I suppose it is. But not for us." Frank started laughing again. The guard looked sternly at him.
 
 "Yeah, sure."
 
 "Phone Dr. Uncler again, he can vouch for me, if you don't believe me."
 
-"It doesn't matter what I believe. But you need to get a proper entry
-card the next time you come in. This will be the last time I do it
-without one."
+"It doesn't matter what I believe. But you need to get a proper entry card the next time you come in. This will be the last time I do it without one."
 
-"Okay." I said calmly. He walked back to his cabin, reached for the
-phone, then stopped. He raised the gate and waved me on.
+"Okay." I said calmly. He walked back to his cabin, reached for the phone, then stopped. He raised the gate and waved me on.
 
 "Go on through."
 
-We drove on the same way I had with Marian, stopping at building
-nineteen. Uncler and Niles were outside when I pulled up to park. Sam
-threw his cigarette to the ground stuck his head in the window and
-looked at Frank across the seat, he was cross and his breath reeked.
+We drove on the same way I had with Marian, stopping at building nineteen. Uncler and Niles were outside when I pulled up to park. Sam threw his cigarette to the ground stuck his head in the window and looked at Frank across the seat, he was cross and his breath reeked.
 
 "You're late. Who's your friend?"
 
@@ -3320,14 +1890,9 @@ looked at Frank across the seat, he was cross and his breath reeked.
 
 "Nice to meet you. Darrin, pull around to the back."
 
-Frank started laughing again. Sam smiled. "I see those tablets have a
-different effect on different people."
+Frank started laughing again. Sam smiled. "I see those tablets have a different effect on different people."
 
-"No," I said looking at Frank, then to Sam. "This is a different
-medication altogether." The three of us laughed. I drove to the loading
-dock at the back of building nineteen. It was pitch dark on this side,
-no light was visible on the building. When I killed the engine and
-snapped the headlights out, Frank and I sat in complete darkness.
+"No," I said looking at Frank, then to Sam. "This is a different medication altogether." The three of us laughed. I drove to the loading dock at the back of building nineteen. It was pitch dark on this side, no light was visible on the building. When I killed the engine and snapped the headlights out, Frank and I sat in complete darkness.
 
 "So who is that?" Frank asked.
 
@@ -3337,80 +1902,37 @@ snapped the headlights out, Frank and I sat in complete darkness.
 
 My hands gripped the wheel. "No, Frank. He isn't."
 
-A door on the loading dock opened. Uncler and Niles stepped through it.
-I rehearsed my plan 'B' one last time in my head.
+A door on the loading dock opened. Uncler and Niles stepped through it. I rehearsed my plan 'B' one last time in my head.
 
 "I need to stop in and pick something up. You want to come with me?"
 
 "Yeah, my legs have fallen asleep sitting in this car so long."
 
-We both got out of the car. I stood by the car door, window down, and
-Frank next to me. He raised the remainder of the joint to his mouth and
-puffed on it. Sam paced over to us, his body language was that of
-irritation of having been made to wait. Niles remained on the dock. I'm
-sure they wondered if I would show at all. I probably shouldn't have.
+We both got out of the car. I stood by the car door, window down, and Frank next to me. He raised the remainder of the joint to his mouth and puffed on it. Sam paced over to us, his body language was that of irritation of having been made to wait. Niles remained on the dock. I'm sure they wondered if I would show at all. I probably shouldn't have.
 
-"If you follow me, gentlemen," Uncler quipped. Frank puffed one last
-time and dropped the remainder to the ground, stepping on it. While he
-was looking down, I leaned back in the car where my fingers found the
-length of PVC pipe. Frank started walking ahead of me, a few paces. I
-removed the pipe from the car taking it firmly in my hand. The only
-light was being cast from the half-open door on the dock. When we mount
-the stairs, that's when I'll strike.
+"If you follow me, gentlemen," Uncler quipped. Frank puffed one last time and dropped the remainder to the ground, stepping on it. While he was looking down, I leaned back in the car where my fingers found the length of PVC pipe. Frank started walking ahead of me, a few paces. I removed the pipe from the car taking it firmly in my hand. The only light was being cast from the half-open door on the dock. When we mount the stairs, that's when I'll strike.
 
 "What is this place?" Frank asked.
 
-"A research facility," Uncler retorted. I was getting ready to extend my
-arm for the strike. Frank turned to look back at me.
+"A research facility," Uncler retorted. I was getting ready to extend my arm for the strike. Frank turned to look back at me.
 
-"You never said you worked in research?" I could see in the darkness he
-face looked confused. He turned back and continued walking. Uncler
-mounted the dock stairs and approached Niles who was looking as confused
-as Frank did. He mounted the first stair, I pulled the pipe out from
-behind my back and extended my arm for the strike. As his foot reached
-the top stair, I brought it down full force on the back of his head. He
-yelped.
+"You never said you worked in research?" I could see in the darkness he face looked confused. He turned back and continued walking. Uncler mounted the dock stairs and approached Niles who was looking as confused as Frank did. He mounted the first stair, I pulled the pipe out from behind my back and extended my arm for the strike. As his foot reached the top stair, I brought it down full force on the back of his head. He yelped.
 
 "Wha..?"
 
-Before he could turn, I hit him again. Harder this time and with a
-succession of quick blows. He fell onto the dock. Uncler and Niles came
-rushing over. Niles knelt over Frank's unconscious body and Uncler shook
-his head.
+Before he could turn, I hit him again. Harder this time and with a succession of quick blows. He fell onto the dock. Uncler and Niles came rushing over. Niles knelt over Frank's unconscious body and Uncler shook his head.
 
 "That was *your* plan?"
 
 I shrugged my shoulders.
 
-"He's enormous, you think I could have handled his dead weight by
-myself?" I asked.
+"He's enormous, you think I could have handled his dead weight by myself?" I asked.
 
-He eyed his girth. "No, I suppose not. But it will take the three of us
-to lift it and put him in the machine."
+He eyed his girth. "No, I suppose not. But it will take the three of us to lift it and put him in the machine."
 
-Niles fetched a gurney and a blanket. With an effort more significant
-that I had imagined, we lifted Frank onto the gurney and placed the
-blanket over him. As we hustled the short distance to the lab, I had an
-odd feeling in me. It felt as if my whole being were light, without
-weight, like air; I had experienced the feeling once previously, when I
-had performed the experiment on Judy. Like before, it was as if I knew I
-would be succeeding, and had to prepare for the consequences. My body as
-I knew it would not be able to withstand the transition into the other
-world. The feeling had been frightening then, and fear gripped me now,
-for this time I would not disrupt fate by destroying the machine. I
-promised success. For the sake of the others and, I would let the
-process come to completion. My head started ringing, the happy effect
-the smoke put on me had left me the second I struck the first blow to
-Frank. As we walked briskly through the hallway, the ringing became more
-intense. I started feeling as if there were a thousand people following
-us.
+Niles fetched a gurney and a blanket. With an effort more significant that I had imagined, we lifted Frank onto the gurney and placed the blanket over him. As we hustled the short distance to the lab, I had an odd feeling in me. It felt as if my whole being were light, without weight, like air; I had experienced the feeling once previously, when I had performed the experiment on Judy. Like before, it was as if I knew I would be succeeding, and had to prepare for the consequences. My body as I knew it would not be able to withstand the transition into the other world. The feeling had been frightening then, and fear gripped me now, for this time I would not disrupt fate by destroying the machine. I promised success. For the sake of the others and, I would let the process come to completion. My head started ringing, the happy effect the smoke put on me had left me the second I struck the first blow to Frank. As we walked briskly through the hallway, the ringing became more intense. I started feeling as if there were a thousand people following us.
 
-The three of us wheeled Frank into the lab. Everything was ready and in
-order: the floors polished smooth, lights dim, panels cleaned, and the
-machine prepared. The generator had an extra compartment attached to it
-to accommodate the new transformers, and the leather ties had been
-installed. I also noticed a video camera near the control panel where I
-was to sit. Niles saw me looking at it.
+The three of us wheeled Frank into the lab. Everything was ready and in order: the floors polished smooth, lights dim, panels cleaned, and the machine prepared. The generator had an extra compartment attached to it to accommodate the new transformers, and the leather ties had been installed. I also noticed a video camera near the control panel where I was to sit. Niles saw me looking at it.
 
 "Donalsed insisted."
 
@@ -3434,11 +1956,9 @@ He wrinkled him nose. "What call?"
 
 "What are you talking about?"
 
-Niles became interested in the conversation. I was starting to feel
-hostile.
+Niles became interested in the conversation. I was starting to feel hostile.
 
-"Oh, don't give me that shit. You woke me late and said the project was
-scrapped."
+"Oh, don't give me that shit. You woke me late and said the project was scrapped."
 
 His face was blank. "No, I didn't. That's your brand of crazy talking."
 
@@ -3448,303 +1968,125 @@ Niles was smirking.
 
 "What the fuck are you looking at?"
 
-"You're cracked, Jensen. Hell, I bet you dreamed it up just like all the
-other minutia in your twisted banal life."
+"You're cracked, Jensen. Hell, I bet you dreamed it up just like all the other minutia in your twisted banal life."
 
 I shot a look at Uncler. He shrugged his shoulders.
 
 "Fuck you, Niles. If Frank doesn't work out, you're next."
 
-Uncler was tugging at Frank's body, he started moving. He went to the
-refrigerator and came back with a vial. He had a syringe, drew a portion
-from the vial and injected him in his arm.
+Uncler was tugging at Frank's body, he started moving. He went to the refrigerator and came back with a vial. He had a syringe, drew a portion from the vial and injected him in his arm.
 
 "Now if the two of you can help me, that would be great."
 
-I bit my tongue. Once again, I found my mind in a whirl; this time not
-on the experiment, but in the tangled briar patch of my inept
-emotions---they had my full attention. I analyzed all the relationships
-I'd had in my life---the break-ups primarily---trying to figure out if I
-had been in the wrong and, if so, what had brought me to it. I thought
-of everybody I had been close to, focusing on my father and Uncler. In
-time I noticed that I was performing the experiment as mechanically as
-if I were washing the dishes or mowing the yard. I had rehearsed it so
-many times in my head, I was ready. Niles didn't look at me as the three
-of us set Frank into position. It was a bit of an effort, but Niles was
-stronger than he let on. The experiment, I had to concentrate on it; a
-monumental task was at hand.
+I bit my tongue. Once again, I found my mind in a whirl; this time not on the experiment, but in the tangled briar patch of my inept emotions---they had my full attention. I analyzed all the relationships I'd had in my life---the break-ups primarily---trying to figure out if I had been in the wrong and, if so, what had brought me to it. I thought of everybody I had been close to, focusing on my father and Uncler. In time I noticed that I was performing the experiment as mechanically as if I were washing the dishes or mowing the yard. I had rehearsed it so many times in my head, I was ready. Niles didn't look at me as the three of us set Frank into position. It was a bit of an effort, but Niles was stronger than he let on. The experiment, I had to concentrate on it; a monumental task was at hand.
 
-Frank was in place, his head hanging lazily to one side, his shirt
-covered with sweat. I sat at the control panel. Uncler, seemingly
-pleased with the setup, tilted his head at Frank.
+Frank was in place, his head hanging lazily to one side, his shirt covered with sweat. I sat at the control panel. Uncler, seemingly pleased with the setup, tilted his head at Frank.
 
 "Where'd you find him?"
 
 "My roommate."
 
-"Well, at least you didn't have to travel far," he quipped
-sarcastically.
+"Well, at least you didn't have to travel far," he quipped sarcastically.
 
-I looked into his hazel eyes; they were soft and warm, as they had been
-that night in his apartment. I could sense my body wanting to repeat the
-encounter, but my mind was back. I had full control of all my
-faculties---the cipher called, I needed to finish this. I smiled and
-patted him on the shoulder. "Thanks for your consolation. Thanks for
-everything."
+I looked into his hazel eyes; they were soft and warm, as they had been that night in his apartment. I could sense my body wanting to repeat the encounter, but my mind was back. I had full control of all my faculties---the cipher called, I needed to finish this. I smiled and patted him on the shoulder. "Thanks for your consolation. Thanks for everything."
 
-He nodded and stared at the cipher. He took his position, as did Niles.
-I motioned for the first switch. The slow whir began.
+He nodded and stared at the cipher. He took his position, as did Niles. I motioned for the first switch. The slow whir began.
 
 "Remember, level the voltage input at eight thousand."
 
 "I got it," Niles said.
 
-My finger was set just above the switch to power up the pulse current.
-My eyes were glued to the gauges: 7, 7.3, 7.8, 8.0---it steadied. It was
-definitely smoother this time, Niles did a fine job repairing the damage
-to the cage.
+My finger was set just above the switch to power up the pulse current. My eyes were glued to the gauges: 7, 7.3, 7.8, 8.0---it steadied. It was definitely smoother this time, Niles did a fine job repairing the damage to the cage.
 
-"Sam, set the pitch directly at nineteen degrees. Niles, throw the
-second switch."
+"Sam, set the pitch directly at nineteen degrees. Niles, throw the second switch."
 
 "Roger," they simultaneously chimed.
 
-The magnetic field intensity was rising: 0.5, 1, 2, 4, 5.5, 6.2, 7.1, 8.
-I felt no effects of the field at my position. Yes, an excellent repair
-job. As the whir became resonant, I felt my head oscillating with it, as
-if the energy and I were in synchrony. I suddenly had a vision of my
-father. On the night he died, I found a note written by him.
+The magnetic field intensity was rising: 0.5, 1, 2, 4, 5.5, 6.2, 7.1, 8. I felt no effects of the field at my position. Yes, an excellent repair job. As the whir became resonant, I felt my head oscillating with it, as if the energy and I were in synchrony. I suddenly had a vision of my father. On the night he died, I found a note written by him.
 
-'After I'm gone, burn my notes, destroy the things that lie in my
-workshop. You must do this or all will be lost.'
+'After I'm gone, burn my notes, destroy the things that lie in my workshop. You must do this or all will be lost.'
 
-Then he'd calmly gotten into his car and driven off; the wreck was found
-the next morning. What always bothered me, what I used to obsess over
-what this single question: Why hadn't he destroyed his work himself? I
-was never able to answer it. Later I figured it was an indirect way of
-telling me to continue. So here I am.
+Then he'd calmly gotten into his car and driven off; the wreck was found the next morning. What always bothered me, what I used to obsess over what this single question: Why hadn't he destroyed his work himself? I was never able to answer it. Later I figured it was an indirect way of telling me to continue. So here I am.
 
-Everything was in perfect placement. I looked at Frank one last time in
-his present form. It wouldn't be so bad for him---at least he and Marian
-would be together. I wondered if they were in love. She *did* write
-'love' on the note for him. I felt the outside of my pocket, the note
-was still there. Apparently I hadn't changed my pants, just my shirt.
-But if they actually *were* in love, they could endure the eternity
-together in the spaces without time. Just like I was going to be with
-Judy.
+Everything was in perfect placement. I looked at Frank one last time in his present form. It wouldn't be so bad for him---at least he and Marian would be together. I wondered if they were in love. She *did* write 'love' on the note for him. I felt the outside of my pocket, the note was still there. Apparently I hadn't changed my pants, just my shirt. But if they actually *were* in love, they could endure the eternity together in the spaces without time. Just like I was going to be with Judy.
 
-"Niles, throw the third switch." He did and my finger engaged the pulse
-current. The cipher ebbed with tempered greyish-white light. The gauge
-measuring current climbed quickly to nearly the top of the scale.
-Starting lambently, the light increased to a blinding wash of white and
-grey. Frank was a silent participant---his body convulsing, being thrown
-sickly back and forth, like a child's doll. I watched as his face
-contorted, his jaw moving to one side, twisting the whole shape of his
-head---nose folding over, eyes turning clockwise, hair and skin melting
-away, spine being pulled extremely forward, resembling a skewed
-T-square. But he kept the circuit connected, and that's what mattered
-the most.
+"Niles, throw the third switch." He did and my finger engaged the pulse current. The cipher ebbed with tempered greyish-white light. The gauge measuring current climbed quickly to nearly the top of the scale. Starting lambently, the light increased to a blinding wash of white and grey. Frank was a silent participant---his body convulsing, being thrown sickly back and forth, like a child's doll. I watched as his face contorted, his jaw moving to one side, twisting the whole shape of his head---nose folding over, eyes turning clockwise, hair and skin melting away, spine being pulled extremely forward, resembling a skewed T-square. But he kept the circuit connected, and that's what mattered the most.
 
-The flat light appeared. It rose quickly and, in a matter of moments, it
-reached a height of two meters, a perfect cubic form. I quickly checked
-the gauges---no surge of the current, frequency at resonance. The
-machine was operating perfectly. Niles moved away from the generator,
-staring into the steady cube of light, frothing with patterns bristling
-within. In his haste, he forgot to make minor adjustments to insure the
-current stability. I was able to do it from my panel, but it took all my
-attention---I wasn't able to watch what was going on in front of me. I
-suddenly realized the camera.
+The flat light appeared. It rose quickly and, in a matter of moments, it reached a height of two meters, a perfect cubic form. I quickly checked the gauges---no surge of the current, frequency at resonance. The machine was operating perfectly. Niles moved away from the generator, staring into the steady cube of light, frothing with patterns bristling within. In his haste, he forgot to make minor adjustments to insure the current stability. I was able to do it from my panel, but it took all my attention---I wasn't able to watch what was going on in front of me. I suddenly realized the camera.
 
-A low, reverberating moan came from the gate. It froze my spine. One
-last setting, the pulse current wasn't leveling; instead, it was
-fluctuating. The gate was drawing more energy to sustain the opening
-than we could produce. The new transformers had helped but it wasn't
-quite enough. The whir and the spinning pyramidal body of the machine
-emitted a deafening sound. I yelled to Uncler. No response. I knew if I
-took my eyes from the gauges, something would go awry; the resonance
-could shift and the gate would decay.
+A low, reverberating moan came from the gate. It froze my spine. One last setting, the pulse current wasn't leveling; instead, it was fluctuating. The gate was drawing more energy to sustain the opening than we could produce. The new transformers had helped but it wasn't quite enough. The whir and the spinning pyramidal body of the machine emitted a deafening sound. I yelled to Uncler. No response. I knew if I took my eyes from the gauges, something would go awry; the resonance could shift and the gate would decay.
 
-I managed to do my best and looked up. Niles was only a few meters from
-the cube, Uncler farther back. Their gazes were fixed; they were
-mesmerized. I yelled to them. Nothing.
+I managed to do my best and looked up. Niles was only a few meters from the cube, Uncler farther back. Their gazes were fixed; they were mesmerized. I yelled to them. Nothing.
 
-The low moan again. I looked toward the gate; several specks of black
-had appeared in its energy pattern. My heart seized; it was them, the
-ones I had seen when I'd had my body through the boundary. I felt the
-other part of myself coming out with them to rejoin me---to make me
-whole again. The need to stop the machine became overwhelming; the need
-to adhere my tattered soul was even greater.
+The low moan again. I looked toward the gate; several specks of black had appeared in its energy pattern. My heart seized; it was them, the ones I had seen when I'd had my body through the boundary. I felt the other part of myself coming out with them to rejoin me---to make me whole again. The need to stop the machine became overwhelming; the need to adhere my tattered soul was even greater.
 
-Donalsed came rushing in. He stood by Niles and they both gaped
-wide-eyed.
+Donalsed came rushing in. He stood by Niles and they both gaped wide-eyed.
 
-The specks grew in size, the moan became clearer. A chorus of voices,
-hordes of travelers all speaking at once. There must have been hundred,
-if not thousands of them in there. Niles was at the threshold, ready to
-put his hand through. A massive grin spread across his face.
+The specks grew in size, the moan became clearer. A chorus of voices, hordes of travelers all speaking at once. There must have been hundred, if not thousands of them in there. Niles was at the threshold, ready to put his hand through. A massive grin spread across his face.
 
-"It's beautiful," Niles gloated, then noticed Donalsed beside him,
-"We've succeeded. We can go anywhere in the universe through this." He
-put his arm over Donalsed's shoulder.
+"It's beautiful," Niles gloated, then noticed Donalsed beside him, "We've succeeded. We can go anywhere in the universe through this." He put his arm over Donalsed's shoulder.
 
-The moan for a second became laughter, I'd swear to it. Uncler turned
-and looked at me, his face stricken with confusion. The laughter echoed,
-I felt it coursing my body. The specks were nearly the height of the
-cube---ready to exit. The moans became distinct voices; chanting,
-calling in their alien language, but I understood them. The link was
-established and gate had been opened. The power drain seemed to stop, as
-if from the other side, power was being projected in order to stabilize
-the link. They were also doing the experiment, from their side, soon
-they will be free to enter and destroy what they could of this world. I
-swallowed dryly.
+The moan for a second became laughter, I'd swear to it. Uncler turned and looked at me, his face stricken with confusion. The laughter echoed, I felt it coursing my body. The specks were nearly the height of the cube---ready to exit. The moans became distinct voices; chanting, calling in their alien language, but I understood them. The link was established and gate had been opened. The power drain seemed to stop, as if from the other side, power was being projected in order to stabilize the link. They were also doing the experiment, from their side, soon they will be free to enter and destroy what they could of this world. I swallowed dryly.
 
-"*Destroy? Do you think we want to destroy you?*" A voice muttered into
-my ear.
+"*Destroy? Do you think we want to destroy you?*" A voice muttered into my ear.
 
-The panel buzzed, red lights flashed, then it appeared that everything
-was malfunctioning at once. The current failed, then recovered. The cube
-flickered and the vibrations fluctuated, but the gate seemed to
-automatically hold itself. I looked around the lab. I couldn't see Sam
-anywhere. Behind me, he was at the main panel, randomly throwing
-switches and dials. Niles had his hand through the gate.
+The panel buzzed, red lights flashed, then it appeared that everything was malfunctioning at once. The current failed, then recovered. The cube flickered and the vibrations fluctuated, but the gate seemed to automatically hold itself. I looked around the lab. I couldn't see Sam anywhere. Behind me, he was at the main panel, randomly throwing switches and dials. Niles had his hand through the gate.
 
-"I want to see what's on the other side, let's go!" I heard Niles say to
-Donalsed. I jumped up from my seat and shook Uncler. I was yelling,
-shaking him as hard as I could. "What are you doing?!"
+"I want to see what's on the other side, let's go!" I heard Niles say to Donalsed. I jumped up from my seat and shook Uncler. I was yelling, shaking him as hard as I could. "What are you doing?!"
 
 "It's too unstable, it'll suck the whole world into it. Look!"
 
-The lab was a wash of white and grey, as if it was inside the cube. The
-gate appeared translucent, by its optics, Uncler could be right.
+The lab was a wash of white and grey, as if it was inside the cube. The gate appeared translucent, by its optics, Uncler could be right.
 
 "What?!" I exclaimed." This was your idea!"
 
 "It's a crack in our reality. We're all in danger!"
 
-A wave of anger filled me, the other part of myself was almost through,
-I could see a figure walking in my gait among the black lines and Uncler
-was trying to prevent me from being complete. I couldn't let that
-happen. I squeezed his shoulder, hearing his collar bone break. He
-screamed, pitching his neck to one side. My strength, it was either
-magnified hundreds of times over else the energy was disturbing the
-molecular cohesion of our bodies. I shoved him away, using a mere gram
-of my energy. He slid across the floor and struck a wall. I laughed. Not
-this time, you *will* see this through.
+A wave of anger filled me, the other part of myself was almost through, I could see a figure walking in my gait among the black lines and Uncler was trying to prevent me from being complete. I couldn't let that happen. I squeezed his shoulder, hearing his collar bone break. He screamed, pitching his neck to one side. My strength, it was either magnified hundreds of times over else the energy was disturbing the molecular cohesion of our bodies. I shoved him away, using a mere gram of my energy. He slid across the floor and struck a wall. I laughed. Not this time, you *will* see this through.
 
-"Come, come friends. Let's begin a new chapter between us." I stood
-before the gate just behind Niles and Donalsed.
+"Come, come friends. Let's begin a new chapter between us." I stood before the gate just behind Niles and Donalsed.
 
-A chorus of voices chanted in elated agreement. My senses were
-heightened, I could feel the thoughts of the people on my side of the
-gate: I felt Niles' gleeful infatuation with the gate turn sour, horror
-had taken him. He backed away slowly, looking at the hand that had
-crossed the threshold; his skin bubbled, muscles gleamed---he had begun
-the transformation. Donalsed seemed less enthusiastic; in an instant I
-knew his treacherous soul.
+A chorus of voices chanted in elated agreement. My senses were heightened, I could feel the thoughts of the people on my side of the gate: I felt Niles' gleeful infatuation with the gate turn sour, horror had taken him. He backed away slowly, looking at the hand that had crossed the threshold; his skin bubbled, muscles gleamed---he had begun the transformation. Donalsed seemed less enthusiastic; in an instant I knew his treacherous soul.
 
-"Enter. Go see what is on the other side. See your true self," I said to
-the both of them.
+"Enter. Go see what is on the other side. See your true self," I said to the both of them.
 
-Niles smiled, seemingly elated in his horror. Drool dripped from the
-corners of his mouth, blood from his hand; both pooled black on the
-smooth floor. A figure exited, its stark black silhouette stretched
-toward me; a sable hand reached out from the horizon. I stepped past
-Niles and took hold of the hand.
+Niles smiled, seemingly elated in his horror. Drool dripped from the corners of his mouth, blood from his hand; both pooled black on the smooth floor. A figure exited, its stark black silhouette stretched toward me; a sable hand reached out from the horizon. I stepped past Niles and took hold of the hand.
 
 "Welcome."
 
-I pulled on the hand. My first thought was to have the hand pull me in
-but instead I found I was pulling at it. My newly granted strength made
-it easy. It stopped moving mid-arm. An electric spasm shook me. The cube
-was vibrating, its energy pattern sporadically shifting with an
-accompanying shift in the voluminous noise. It was Uncler. He was at the
-control panel, trying to disturb the pulse current to initiate the
-automatic shutdown sequence.
+I pulled on the hand. My first thought was to have the hand pull me in but instead I found I was pulling at it. My newly granted strength made it easy. It stopped moving mid-arm. An electric spasm shook me. The cube was vibrating, its energy pattern sporadically shifting with an accompanying shift in the voluminous noise. It was Uncler. He was at the control panel, trying to disturb the pulse current to initiate the automatic shutdown sequence.
 
 "Stop what you are doing!"
 
-I released the hand. I noticed despite Sam's efforts the cube
-automatically corrected itself to his shifting pulse duration, rise and
-fall times. We were locked in resonance, the gate could not be shut
-down. I regained my grip with the hand.
+I released the hand. I noticed despite Sam's efforts the cube automatically corrected itself to his shifting pulse duration, rise and fall times. We were locked in resonance, the gate could not be shut down. I regained my grip with the hand.
 
 "Darrin!" Uncler cried. "Niles."
 
-In my focus on the hand, the focus on my missing self, Niles was
-readying himself to breach the horizon. The thin black lines in the
-pattern of the energy stood at our height and only a few centimeters
-before us. I stepped back to one side, and he jumped in. His form
-vanished into the cube with no more than a pop.
+In my focus on the hand, the focus on my missing self, Niles was readying himself to breach the horizon. The thin black lines in the pattern of the energy stood at our height and only a few centimeters before us. I stepped back to one side, and he jumped in. His form vanished into the cube with no more than a pop.
 
 "What about you," I yelled to Donalsed. "Going through?"
 
-He stared at me, wide-eyed and shook his head in a way that told me no,
-although I already knew what he was thinking. I could feel Niles on the
-other side, his glee at seeing other worlds and new people; new ideas
-and new experiences.
+He stared at me, wide-eyed and shook his head in a way that told me no, although I already knew what he was thinking. I could feel Niles on the other side, his glee at seeing other worlds and new people; new ideas and new experiences.
 
-"I think you should," I used my free hand to grab Donalsed and I pushed
-him through the horizon, his form disappeared through the gate. A black
-silhouette was at the horizon, it became imbued with light the closer it
-came out. I saw its facial features, it looked human but different. It
-seemed to be smiling. I heard its thoughts. They were scientists just
-like us, curious about other people in other vast parts of the universe.
-They were not a threat, only travelers on a quest for knowledge, for the
-truth about this space we call reality. I heard the form say I had been
-right, my theory was always right. It was only our fear that set
-roadblocks for ourselves so that we could not achieve anymore than we
-allowed ourselves to.
+"I think you should," I used my free hand to grab Donalsed and I pushed him through the horizon, his form disappeared through the gate. A black silhouette was at the horizon, it became imbued with light the closer it came out. I saw its facial features, it looked human but different. It seemed to be smiling. I heard its thoughts. They were scientists just like us, curious about other people in other vast parts of the universe. They were not a threat, only travelers on a quest for knowledge, for the truth about this space we call reality. I heard the form say I had been right, my theory was always right. It was only our fear that set roadblocks for ourselves so that we could not achieve anymore than we allowed ourselves to.
 
 "We have to shut the gate! Now!" Sam yelled.
 
-"No, you have it all wrong. Come over here and see." I motioned with my
-free arm. I heard him thinking he wasn't going to, he was afraid I'd
-push him through like I had Donalsed.
+"No, you have it all wrong. Come over here and see." I motioned with my free arm. I heard him thinking he wasn't going to, he was afraid I'd push him through like I had Donalsed.
 
 "Darrin, don't. Let go."
 
-I grinned, it was Cheshire. I felt my face expand to accommodate it. His
-fear was welcome to me, he was horrified by the changing molecular
-structures, how my body contorted and shifted like the pattern of energy
-at the horizon. I fed on it. I *used* to be afraid like that, but I
-never will be again.
+I grinned, it was Cheshire. I felt my face expand to accommodate it. His fear was welcome to me, he was horrified by the changing molecular structures, how my body contorted and shifted like the pattern of energy at the horizon. I fed on it. I *used* to be afraid like that, but I never will be again.
 
 "I'm sorry, Darrin."
 
-Uncler went to Niles' station and opened the third switch. He was opting
-for manual shutdown. The power on our side was starting to reduce
-exponentially, too fast for the others to compensate. The hand starts to
-recede again. No, I will *not* be broken, desperate, and disfigured any
-longer. The cube is shrinking, reducing in height. I still have a firm
-hold. I could hear the thoughts from the other side, I am being pulled
-inward.
+Uncler went to Niles' station and opened the third switch. He was opting for manual shutdown. The power on our side was starting to reduce exponentially, too fast for the others to compensate. The hand starts to recede again. No, I will *not* be broken, desperate, and disfigured any longer. The cube is shrinking, reducing in height. I still have a firm hold. I could hear the thoughts from the other side, I am being pulled inward.
 
-"*We'll be able to repeat this experiment with your knowledge. Leave
-your world and come be with us. Let us show you the wonders of the
-universe.*"
+"*We'll be able to repeat this experiment with your knowledge. Leave your world and come be with us. Let us show you the wonders of the universe.*"
 
-I a flash I saw all the people I knew during my lifetime, those good
-memories and those bad. I felt ashamed how I treated myself and how I
-interpreted myself in relation to this experiment. I am the one, *true*
-genius, not because I could understand the problem more thoroughly than
-anybody else alive, but because I had the courage to see it to the end
-and at the end, had no fear. This is what my father must've been trying
-to tell me. It wasn't the work that needed to be destroyed, it was
-myself.
+I a flash I saw all the people I knew during my lifetime, those good memories and those bad. I felt ashamed how I treated myself and how I interpreted myself in relation to this experiment. I am the one, *true* genius, not because I could understand the problem more thoroughly than anybody else alive, but because I had the courage to see it to the end and at the end, had no fear. This is what my father must've been trying to tell me. It wasn't the work that needed to be destroyed, it was myself.
 
 "Let go! Darrin! LET FUCKING GO!"
 
-I can hear Uncler yelling. He keeps repeating what he's saying. He
-really *is* a good sort, despite what he thinks about himself. But I see
-he is not ready for the truth, like I had been. I completely understand
-him, but I cannot go along with him anymore. What we had could have been
-special, had he not chose to take advantage of me rather than love me,
-as he so professed. The same could have been said about Marian and Judy.
-Frank, though, was a *true* friend, I could feel the love from him in
-the gate. Together in the spaces without time, eternal and complete.
-Sorry Sam, I've had enough division, enough strife, and enough nonsense.
-In a rapid snapping motion, I am pulled through the gate, my vision a
-hot flash of alabaster, then the cool ooze of onyx.
-
-<img src="media/image1.png" style="width:1.44792in;height:0.54167in" />
+I can hear Uncler yelling. He keeps repeating what he's saying. He really *is* a good sort, despite what he thinks about himself. But I see he is not ready for the truth, like I had been. I completely understand him, but I cannot go along with him anymore. What we had could have been special, had he not chose to take advantage of me rather than love me, as he so professed. The same could have been said about Marian and Judy. Frank, though, was a *true* friend, I could feel the love from him in the gate. Together in the spaces without time, eternal and complete. Sorry Sam, I've had enough division, enough strife, and enough nonsense. In a rapid snapping motion, I am pulled through the gate, my vision a hot flash of alabaster, then the cool ooze of onyx.
 
