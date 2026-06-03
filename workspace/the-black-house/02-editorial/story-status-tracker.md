@@ -9,7 +9,7 @@
 | Story | Standalone Output | Original/Edited Split | Notes | PDF Path | Editorial Pass |
 |---|---|---|---|---|---|
 | A Forgotten Memory | complete | complete | complete | complete | pending |
-| Absolution | pending | pending | pending | pending | pending |
+| Absolution | complete | complete | complete | complete | pending |
 | Testimony of a Loved One | pending | pending | pending | pending | pending |
 | Of Something I Once Knew | pending | pending | pending | pending | pending |
 | Life in the Real or the Transformation of a "Normal" Person Through the Void of an Enigmatic Existence | pending | pending | pending | pending | pending |
