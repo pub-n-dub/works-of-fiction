@@ -9,6 +9,7 @@ BODY_TEX="$ROOT_DIR/body-proof.tex"
 CACHE_HOME="${TMPDIR:-/tmp}/ninety-nine-proof-lualatex-home"
 
 mkdir -p "$CACHE_HOME/.cache" "$CACHE_HOME/.texlive2025/texmf-var"
+cd "$ROOT_DIR"
 
 {
   perl -pe 's/^\t+//' "$MANUSCRIPT_DIR/ninety-nine-working.md"

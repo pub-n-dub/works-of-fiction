@@ -32,9 +32,13 @@ decisions live.
 - `01-manuscript/ninety-nine-canonical-source.doc`
 - `01-manuscript/ninety-nine-working.txt`
 - `01-manuscript/ninety-nine-working.md`
+- `01-manuscript/ninety-nine-reconstructed-continuation.md`
 - `00-intake/source-inventory.md`
 - `01-manuscript/canonical-decision.md`
 - `02-editorial/completeness-note.md`
+- `02-editorial/preliminary-kindle-assessment.md`
+- `05-production/proof/ninety-nine-proof.pdf`
+- `05-production/ebook/ninety-nine-preliminary.epub`
 
 ## Folder Guide
 
@@ -53,4 +57,6 @@ decisions live.
 1. Confirm the manuscript gap around the missing final thirty days section.
 2. Produce an editorial assessment of the existing text as a novella-in-progress.
 3. Decide whether the missing material should be restored, rewritten, or restructured.
-4. Only after completion, build formal print and ebook submission files.
+4. Use the current proof and EPUB for private editorial reading while the
+   completion question remains open.
+5. Only after completion, build formal print and ebook submission files.
