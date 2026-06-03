@@ -11,7 +11,7 @@
 | A Forgotten Memory | complete | complete | complete | complete | pending |
 | Absolution | complete | complete | complete | complete | pending |
 | Testimony of a Loved One | complete | complete | complete | complete | pending |
-| Of Something I Once Knew | pending | pending | pending | pending | pending |
+| Of Something I Once Knew | complete | complete | complete | complete | pending |
 | Life in the Real or the Transformation of a "Normal" Person Through the Void of an Enigmatic Existence | pending | pending | pending | pending | pending |
 | The Electric Cipher | pending | pending | pending | pending | pending |
 | The Flashback | pending | pending | pending | pending | pending |
