@@ -6,10 +6,12 @@ This directory contains the LaTeX-based print production path for *The Black Hou
 
 - `black-house-print.tex`: main print-layout file
 - `black-house-edited-print.tex`: integrated edited print-layout file
+- `black-house-kdp-print.tex`: KDP-ready paperback interior file
 - `body-from-docx.tex`: manuscript body generated from the canonical `.docx`
 - `body-clean.tex`: manuscript body with duplicated front matter removed
 - `body-edited.tex`: manuscript body generated from the edited standalone story files
 - `build-edited-lualatex.sh`: build helper for the integrated edited edition
+- `build-kdp-lualatex.sh`: build helper for the KDP paperback interior
 - `rebuild-edited-book.sh`: regenerates the integrated edited manuscript and LaTeX body
 
 ## Build
@@ -33,6 +35,13 @@ For the integrated edited edition, use:
 ./build-edited-lualatex.sh
 ```
 
+For the KDP paperback interior, use:
+
+```sh
+./rebuild-edited-book.sh
+./build-kdp-lualatex.sh
+```
+
 Run it twice if the table of contents or page references change.
 
 ## Notes
@@ -44,4 +53,5 @@ Run it twice if the table of contents or page references change.
 - `rebuild-edited-book.sh` inserts clean separators between story files before regeneration
 - `build-lualatex.sh` provides a sandbox-safe LuaLaTeX build with a writable cache home
 - `black-house-edited-print.tex` and `build-edited-lualatex.sh` produce the integrated edited working book
+- `black-house-kdp-print.tex` targets a 5.5" x 8.5" KDP paperback interior with mirrored margins
 - once we begin active editing, we may prefer to generate from `01-manuscript/the-black-house-working.md` instead of directly from the `.docx`
