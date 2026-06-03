@@ -15,7 +15,7 @@
 | Life in the Real or the Transformation of a "Normal" Person Through the Void of an Enigmatic Existence | complete | complete | complete | complete | pending |
 | The Electric Cipher | complete | complete | complete | complete | pending |
 | The Flashback | complete | complete | complete | complete | pending |
-| The Itch | pending | pending | pending | pending | pending |
+| The Itch | complete | complete | complete | complete | pending |
 
 ## Final Book Objective
 
