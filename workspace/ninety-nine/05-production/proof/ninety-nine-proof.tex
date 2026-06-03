@@ -1,0 +1,89 @@
+\documentclass[11pt,openright]{book}
+
+\usepackage[
+  paperwidth=5.5in,
+  paperheight=8.5in,
+  top=0.75in,
+  bottom=0.75in,
+  inner=0.5in,
+  outer=0.375in,
+  includeheadfoot
+]{geometry}
+\usepackage{fontspec}
+\usepackage{microtype}
+\usepackage{setspace}
+\usepackage{titlesec}
+\usepackage{fancyhdr}
+\usepackage{emptypage}
+\usepackage[hidelinks]{hyperref}
+
+\setmainfont{Latin Modern Roman}
+\setsansfont{Latin Modern Sans}
+\setmonofont{Latin Modern Mono}
+
+\setstretch{1.08}
+\setlength{\parindent}{1.25em}
+\setlength{\parskip}{0pt}
+\clubpenalty=10000
+\widowpenalty=10000
+\displaywidowpenalty=10000
+
+\pagestyle{fancy}
+\fancyhf{}
+\fancyfoot[C]{\thepage}
+\renewcommand{\headrulewidth}{0pt}
+\renewcommand{\footrulewidth}{0pt}
+
+\titleformat{\chapter}[display]
+  {\normalfont\huge\bfseries\centering}
+  {}
+  {0pt}
+  {\Huge}
+
+\titleformat{\section}
+  {\normalfont\Large\bfseries}
+  {}
+  {0pt}
+  {}
+
+\hypersetup{
+  pdftitle={Ninety-Nine},
+  pdfauthor={C.A. Tucker},
+  pdfsubject={Reconstructed editorial proof},
+  pdfcreator={LaTeX},
+  pdfproducer={LuaLaTeX}
+}
+
+\begin{document}
+\frontmatter
+\thispagestyle{empty}
+\vspace*{\fill}
+\begin{center}
+{\Huge \textbf{Ninety-Nine}\par}
+\vspace{1em}
+{\Large Reconstructed Editorial Proof\par}
+\vspace{2em}
+{\Large C.A. Tucker\par}
+\end{center}
+\vspace*{\fill}
+\clearpage
+
+\thispagestyle{empty}
+\vspace*{\fill}
+\begin{center}
+Internal working proof.
+
+\vspace{1em}
+Built from the surviving manuscript plus a modern reconstructed
+continuation.
+\end{center}
+\vspace*{\fill}
+\clearpage
+
+\tableofcontents
+\clearpage
+
+\mainmatter
+\input{body-proof.tex}
+
+\end{document}
