@@ -29,7 +29,7 @@ then creates a proof PDF for editorial reading.
 
 Read the first two paragraphs of ninety-nine proof pdf and tell me your honest opinion of the work of fiction.
 
-Based on the first two paragraphs of *Ninety-Nine*, here's my honest assessment:
+Claude: Based on the first two paragraphs of *Ninety-Nine*, here's my honest assessment:
 
 **Strengths:**
 - **Distinctive voice**: The narrator's introspective, confessional tone is authentic and compelling. There's a real rawness to the perspective that feels lived-in.
