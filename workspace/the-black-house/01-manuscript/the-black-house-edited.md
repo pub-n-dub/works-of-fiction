@@ -2917,7 +2917,7 @@ A long pause ensued. I could tell he was thinking deeply, intellectually digesti
 
 My heart suddenly leaped. "You're not thinking of actually continuing the work, after what I just told you?"
 
-He quickly looked at me, smiling furtively. He stood up. "No. No. In fact, I'm going to go to the lab tomorrow and destroy it."
+He quickly looked at me, smiling furtively. He stood up. "No. In fact, I'm going to go to the lab tomorrow and destroy it."
 
 "I'd like to go and\..."
 
@@ -3702,7 +3702,6 @@ I a flash I saw all the people I knew during my lifetime, those good memories an
 "Let go! Darrin! LET FUCKING GO!"
 
 I can hear Uncler yelling. He keeps repeating what he's saying. He really *is* a good sort, despite what he thinks about himself. But I see he is not ready for the truth, like I had been. I completely understand him, but I cannot go along with him anymore. What we had could have been special, had he not chose to take advantage of me rather than love me, as he so professed. The same could have been said about Marian and Judy. Frank, though, was a *true* friend, I could feel the love from him in the gate. Together in the spaces without time, eternal and complete. Sorry Sam, I've had enough division, enough strife, and enough nonsense. In a rapid snapping motion, I am pulled through the gate, my vision a hot flash of alabaster, then the cool ooze of onyx.
-
 
 
 # The Flashback
