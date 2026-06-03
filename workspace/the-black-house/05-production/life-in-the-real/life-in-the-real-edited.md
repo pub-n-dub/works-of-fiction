@@ -1,0 +1,474 @@
+
+The DAY has passed.
+
+It rolled in and over me, tearing my mind apart and jostling my
+benevolent body as a rag doll in a child's hands, leaving me with a head
+full of fog and a quivering composure. She sat next to me, and after
+giving me a look of seduction, sex and apathy, asked for the fifth time
+if she could drive. I repeated what I had been saying on every click of
+a mile, on every hour of the night.
+
+"No."
+
+I had really only known her six hours---it seemed like longer, perhaps
+twelve, but then again I had been on the road near four hours; time
+viewed from behind the wheel can sometimes become distorted, sort of
+like driving through a long tunnel black as pitch---with blinders
+attached. She might have been my last girlfriend, a friend's girlfriend,
+a shared girlfriend, a woman pressing a lawsuit for my ill behavior, or
+a woman I didn't even know.
+
+I wish to say I am not the kind of man who consciously chooses to
+immerse himself in self-credible or "occult-based" thoughts. I'd rather
+have no part of it. In fact, I like to think as little as possible, what
+with the world the way it is, if one is inclined to think about it, he
+would eventually drive himself crazy. So, in the interests of staying on
+my side of the fence, of not keeping myself shut off from the world, my
+friends, family and whatever, I find it best not to ponder---no matter
+what the circumstances. Though friends say to be an artist, a writer,
+you have to ponder, I'll stay out in the light of life instead of
+shutting myself out---like most artists seem to do. And if I have to
+compromise, I'll refuse the art, the ability, and the madness.
+
+I was, however, never certain of the prospects of life, never certain of
+my position and my place, and powerless to act on my inhibitions.
+
+Earlier in the evening, before I agreed to drive her to San Ramon, we
+had some drinks, a little food, heavily caffeinated sugarless sodas and
+generous amounts of concentrated powdered stimulants. My mind was keen,
+my body was jelly; she grinned from ear to ear and talked of her life in
+long phrases, the words turned sentences jammed themselves into my ears.
+
+Earlier than that, before the arduous, godforsaken journey began, I met
+her at a sleazy pool hall---a place where all the lazers, losers,
+no-lifes, stoners, slammers and tweakers gathered---it might have been
+pure comedy if I hadn't realized fifteen minutes into our stay that I
+knew somebody there. I wanted to laugh but only hacked dryly which
+sounded more forced than accidental. She seemed amused.
+
+Even earlier than that, I had my ear filled by another friend.
+Apparently he was in the midst of an emergency; a desperate, personal
+crisis was at hand. The world had fallen in, the pressure on his brain
+was critical, the stress would kill him at any moment. It was at times
+like this he chose to channel the crux of his annoyances onto the path
+of least resistance, to someone else, someone who was close and an easy
+target. And I was the chosen target this day. I had told him a couple of
+nights ago, as we were having beers, that if he needed anything, I would
+be glad to help him out just because we were friends, because I valued
+his company. He decided to cash in on the proposed favor. But as I heard
+his girlfriend in the background pleading with him to take her to San
+Ramon---a small, fairly pleasant town in the hills above the Bay Area, a
+distance well over a hundred miles---I had caught myself thinking twice
+about having made the promise in the first place, this favor was beyond
+the call, stretched beyond its limits. A "normal" person wouldn't...but
+I was a man of my word, one to live up to my responsibilities and to let
+friends down as infrequently as possible. I had to figure the time
+involved getting to San Ramon, one literally had no idea after
+considering all the variables of traffic, construction and weather that
+lay in the stretch between the valley and there. After offering me all
+the pleasantries, and setting up me as the officially sponsored ride,
+the officiator of good faith that he was requested if I could fulfill
+the task. I smirked and tried to back out of it\--if there was any way
+to, I had to find it without letting him down. I told him I already gave
+at the office.
+
+"Hey, this is important," he thinly pleaded.
+
+I was sure it was, she was near tears, sniveling and whining. She was
+probably on her knees, which made for an interesting mental picture. I
+remembered it used to work on him, years ago. Now he was bored and tired
+of her\--now he was immune.
+
+I wished I had been so brazen, and not caught myself in a trap of my own
+design.
+
+"Come over and we'll talk about it," he said. And why not? I was a
+patronizing guy in need of a good shafting\--no lube of course. He was
+really going to go forward with it, and throw my promise into my face,
+if it came to that. Every part of me screamed not to go, but being a
+mediocre writer and adventurer, this could be fodder for creativity. If
+I only had known.
+
+When I arrived, I came to realize it was a fine performance, one that
+required tens of minutes of rehearsing; she stood so close to me I
+picked up a mixed scent of perfume, sweat and fresh, stagnant sex on
+her. It made me think of my parents' waterbed, my ex-girlfriend Lisa,
+her sister, several rolls of film, a box of condoms, a jar of honey, my
+cat Sam and two meters of twine. Lisa and her sister said it was kinky,
+I thought it was weird.
+
+"Please," she whimpered, "I need to go see my son, it's been months."
+
+I watched her shuffle over to the fireplace and stick her face close to
+the fire. "I'm so stressed," she said at last. "My mother's going to
+take him away from me and I'll have no one in the world---no one at
+all."
+
+That must've meant her boyfriend didn't count; he glared at her, mouthed
+'not my kid', made obscene masturbating gestures and went off to the
+kitchen. After the sound of him rifling frantically through cabinets
+echoed through the house, he came back with a lone, helpless Ho-Ho and
+messily devoured it. His blank face was smeared with cream filling.
+
+I gazed at the fire seeing the flames lick the blackened bricks. I
+pictured myself as a brick, the girl as the fire, and my friend as the
+mortar holding me in place. My good-natured, naive urge to help people
+being defaced by the flames. I wished I never saw the fireplace, or the
+girl, or my friend. I only had one prevailing thought\...I wished I
+listened to myself and still lived in obscurity in the city, without
+friends, without colleagues, and without problems.
+
+And before all that happened, I was resting quietly in my room, the
+walls a wash of tan and white, the ceiling a glimmer of specks, the
+insides of my eyes a kaleidoscope. My stomach wrenched, my appetite
+non-existent, insomnia overtaking, the cause of which unrenowned to me.
+When the phone rang, every fiber of my being chorused I not answer, that
+it would be certain death, the gun with a single bullet in the chamber
+aimed at my head. I smiled and opened my eyes, gazing at the phone, the
+receiver nearly jumping out of its cradle into my hand.
+
+The clap of fire, the projectile lodged in the fall wall after passing
+through unshielded flesh. An aroma of gunpowder hung heavy in the air.
+
+**II**
+
+The highway leaped out before me, crouching into curves, tucking itself
+under bridges; sodium lamps screamed orange streaks casting eerie
+shadows on her expressionless face.
+
+I used to toy with the idea I was losing my mind, but I had given it up
+years ago, after seeing what an emotionless bastard I had become---I had
+no choice but to. I hated myself. And almost died at my own hands. I had
+put all that negativity away, far away, where I could never find it. I
+blocked everything, and denied everything; slowly I had become a better
+person, more human. And now the muck was being stirred, feelings dredged
+up from the bottom of the black pool I was so afraid of. The old glove
+of assimilation into the void, was upon me. But why toy? Why even worry
+about it? Why fight it? Just admit to the fact I had lost it. Why spend
+so much energy prolonging the inevitable? I mean, here I was, exactly
+where I didn't want to be, with her, in my car, on the road, to a
+destination of great unimportance. I had lost the capacity for rational,
+reasonable thoughts indicative of self-preservation. I must have been
+out of my noodle. I had broken a branch in the hierarchy of the Tree of
+Life and fallen a great distance---all fingers pointed, all eyes stared,
+all faces laughed---I had to be insane.
+
+"What are you thinking?" She asked callously.
+
+"Oh, nothing." I said and pulled the car hard into a curve, hoping the
+ditch would find me.
+
+"Sure?"
+
+"Well, no, that's a lie. But if you must know, I'm pondering\...driving,
+flying, crawling, leaning; swallowing, spitting, chewing, licking;
+twisting, turning, spinning, whirling\...Lisa, Bethany, Lyle and Oreos;
+breasts, buttocks, hemorrhoids and vices; a friend, an enemy, his wife
+and my car; life, death, lust and the Japanese...Dinah, Hiela, Maria and
+herpes; sex, fucking, love and inconveniences; high, low, never and a
+memory lapse; amphetamines, depressants, a bore and what I need right
+now." In my mind I had said it all, and without rehearsal. But my lips
+would have no part of it. If I let her know anything about me, then, she
+could manipulate her brilliant discoveries. She would incessantly keep
+her wandering eyes fixed upon me, looking for more worldly information
+in a vain attempt to familiarize herself with my psyche. And I was
+having a difficult time as it was remaining enigmatic, it was all I
+could do to keep from sliding completely into the seat.
+
+\...She sits next to me, her eyes on the road, her eyes on me...I'm
+finding it difficult to discern my erratic high from reality, I can't
+distinguish which is fact, which is fiction, and which is pure illusion.
+I look at her, her eyes meet mine. I follow the curves of her body:
+long, tangled brown hair, thin eyebrows, large hazel eyes, small nose
+and lips: her chin, her neck, her shoulders and breasts, her waist,
+hips, pussy, and legs\...I fantasize...I see a movie of us having sex
+together...
+
+But the sight of my friend pumping steadily into her awakes me,
+discarded shimmering silver Ho-Ho wrappers litter his bedroom floor.
+
+...Later:
+
+Near eleven, my thoughts slow, I shut the car off in a parking lot. She
+laid rails and I became the 10:53 Express, leaning to check my
+reflection. She decided on swallowing rather than breathing and winced
+as it went down. I wished to smile but found I couldn't, the phantom
+grin permanently wiped from my face. At 5:30 she was cute, at 7:00 she
+was adorable, at 9:15 she was naked, breasts perking out, her fingers
+probing between her legs; at 9:16 I purposely slammed my head into the
+door glass. At 10:00 she was irritating, at 10:20 I wanted to strike
+her, at 10:40 I wanted to choke her, at 10:45 I wanted to kill her and
+at 10:54, I loved her.
+
+The sway of emotions, the turpitude of my thoughts and fantasies, didn't
+surprise me as much as the erection in my pants. I looked down at myself
+and was perplexed at what I saw---this odd bulge---it couldn't have been
+for her, I wasn't even attracted to her. She was plain, banal,
+dispassionate, and patronizing. It must have been from running on high
+octane, on pure reaction, on instinct, on fear.
+
+"I like your hair," she said solemnly, trying to strike up a
+conversation. Not much had been said in the last hour. I had gotten used
+to the purr of the motor, the slipstream of the wind, the growling of
+the road pounding into my head. I had worked myself into a daze; a
+scenario: after a great cataclysm, after total annihilation of the earth
+and its components, I was the only soul left in the world, damned to pay
+for the sins of a wanton life by (endlessly) driving to a non-existent
+destination. And she was a figment of my imagination, the only company I
+could muster in the plight of my (doom, situation). And I was fond of
+talking to my imagination, believing it could manifest itself outside of
+my head. And apparently it had. So, with a complete blank on my face and
+a constant monotone in my voice, I nodded and replied with a proper,
+
+"Thanks."
+
+"That's a nice ring too. Can I see it?" The projection asked. I held my
+hand to its face, the gold caught the glint of the night.
+
+> "A gift?"
+>
+> "Yes."
+>
+> "Nice."
+>
+> "Thanks."
+>
+> "From who?"
+>
+> "A friend."
+>
+> "Girlfriend?"
+>
+> "I can't say."
+>
+> "Can't or won't?"
+>
+> "I really have no idea."
+
+Silence. The banter waned. My imagination was staring to lose
+cohesion---to lose its imagination. I was desperately disappointed. The
+drive was endless.
+
+In San Ramon:
+
+Into town, up hills and down hills, around curves, dips, and
+inconsistent pavement surfaces. I was impatient and had been for the
+better part of sixty miles. Her directions were a maze of pernicious
+angles, disorganized and skewed, related to me in a tone that included
+questions she asked of herself: where the hell was she taking us, it's
+late and maybe her mother's asleep, what street was that, are we in the
+right town, she wanted to make it up to me on the way back, and she was
+lost.
+
+I was thinking of what my friend told me before I left with her.
+
+"Expect her to say, 'I'll make it up to you'. If she does (and she
+probably will), be sure you cash in before you drop her off---or else
+you'll see nothing of her promise. Oh, yeah, most importantly, play on
+her a little, she'll kick down, promise or not."
+
+"Nah," I said. "She's YOUR girlfriend."
+
+"She not MY girlfriend, just my Ho."
+
+Like whore, harlot, skank, sleaze, Ho, or prostitute; like Ho-Hos, like
+the way the cream filling was lodged into the corners of his mouth. I,
+like the crumpled silver wrapper peeking out of the fingers of his
+clenched fist, screaming to be let free.
+
+"But, you know, she has the tightest pussy. Even after pumping out a
+kid. You've got to find out."
+
+Sighing heavily, I turned my back on him wondering why he had so little
+respect, so much anger, hatred and malice toward the small female. If I
+hadn't learned it then, I was to find out very soon. The had been trap
+baited and the prey snared; all that remained to be done---skin and
+devour the poor beast.
+
+The truth was becoming painfully obvious. No sense denying it any
+longer. I wanted to...ahh...I wanted to\...to\...to\...I want to\...my
+erection throbbed. It wouldn't go away. Hopefully she won't take notice.
+But, as precaution, I should have brought condoms.
+
+But I didn't and that's good, it'll insure I remain unaffected by her,
+never mind all that. At any moment, I'll calm down. Let it be said, I
+have absolutely no intention to fuck her.
+
+Could probably buy condoms at the liquor store we just passed, they
+always have a good supply of them.
+
+"Not now or never," I whispered to myself.
+
+Pretty cheap too.
+
+I have better taste than that and I'm broke, besides HE had sex with
+her, Mr. Single-Speed with Reverse going out. And she LIKED it, she
+wanted it, and probably ANTICIPATED it. No way I could share the same
+space with HIM, I shudder at the thought, at the pictures in my brain.
+If I could only make myself physically sick, that would convince her I
+wanted nothing to do with her.
+
+Although she's not bad to look at, even if her hair is a fright.
+
+STOP IT!!
+
+I sighed and felt a sudden silence in my mind, the facilities causing
+calamity in me shut down; quaint, piquant, aloof, nice. Even my
+imaginary girlfriend riding shotgun was silent, still. I breathed a sigh
+of relief. I thought back to my relaxing insomnia in my room at home and
+took reverie in the moment of retrospect. Calm. Peace. Passivity. The
+first time since\...
+
+Fluorescent ones only $1.69 for a three pack...
+
+"There it is!" She screamed, bouncing up and down while pointing out the
+window as if she were fourteen and looking into the monkey house
+watching the primates inspect their genitals. "Park here."
+
+I pulled to the curb.
+
+"Not here, down there. Somebody else parks there."
+
+I bet they do.
+
+"Now, here's the story." She turned and gave me details on what I was
+supposed to know and what I didn't know. This sort of thing is usually
+labeled deception but too many hours and too many miles had passed, I
+couldn't care less. Too much information had been input. Too many
+reactions. Too much stress, anticipation and anxiety. Shutdown had
+commenced.
+
+But somehow, somehow I managed enough thoughtfulness to help her out of
+the car and to the front door; my noble reward a stumble over a hose the
+father of the child had left lying on the sidewalk.
+
+Tripe details of our visit to her mother's and the eye-wrenching,
+tear-jerking reunion of her and her son are hereby omitted. Save the
+father was nowhere to be found. And the mother was about as agreeable as
+a cat about to take a bath. Oh, yeah, everybody---except the two
+year-old---was on some sort of drug or another.
+
+Okay, one sentence, fourteen words. An impression of the whole ordeal:
+
+The only item I learned was that I should have less respect for her.
+
+**III**
+
+While driving, a lifetime could have expired.
+
+Sometime during the small hours of the morning, on the trip back to the
+valley, she started speaking. I wasn't sure if I had heard right, I was
+lost in the vacuous expanse that was once my mind.
+
+> She asked about love.
+>
+> I told her what I thought about it.
+>
+> She asked me how serious I get with a woman.
+>
+> I told her what I thought.
+>
+> She asked if I ever fell in love would it always be.
+>
+> I told her what I thought.
+>
+> Was it deep? Was it passionate? Was it obsessive?
+>
+> She knew the answer.
+
+She paused, as if she were afraid of her next question; the silence a
+prickled cushion making even me nervous.
+
+"Would you think about being in a relationship with me?"
+
+I smiled and nodded but gave no response. I could've lied, could have
+spent the time fabricating a wonderful, poetic line as my friend
+inevitably had, but I knew my eyes wouldn't be able to pull it off.
+
+**IV**
+
+It was daylight, the sun was lazily beaming through the clouds; I
+stopped before a house she wanted to be let off at. I was exhausted and
+had to get home, back to my room where I could be alone and think and
+meditate\--my manners were nowhere to be found. She made motions like
+she wanted me to walk her to the door, as if I should attempt to cash in
+on that promise. I thought to but it remained as such, my body would not
+move.
+
+"Well, I\..." she started to say.
+
+"Goodbye." I sat, my eyes staring out the windshield. Her face in a
+pathetic pout, a disdainful frown, a devastating disappointment. Certain
+to cause great change in her, she would alter her ways so that she might
+be with me, to get herself up to my standards---right. That is a laugh,
+a joke, a spit into the face of human, a kick in the ass to the
+continuity and ability of life to sustain and replicate itself.
+Ironically, I had no standards and fell for just about everything that
+became available to me. But not this one, not in any lifetime. I knew
+too much about her although we had not spoken. I knew the ins and outs
+of her although we had not touched. I knew the fabric of her being
+without compromise, without prejudice, and without objectivity. She
+faded away, her face as indistinguishable as the highway in the fog I
+had just traversed. The door slammed and I put the accelerator to the
+floor, not once looking behind me.
+
+The DAY has passed.
+
+Seconds to minutes to hours gone
+
+A day never to have known
+
+What hopes, what desires
+
+Time being a thief.
+
+Tis the NIGHT now.
+
+Time to reflect, time to solace
+
+My aching head and body
+
+Time to find a quick resolve
+
+That offers immediate pleasure.
+
+My friend phoned and asked if I had indeed fucked her. I didn't answer
+him, not even wishing to speak to him, limiting myself to only thinking
+about it. Wondering absolutely nothing, wishing for naught; time spent
+viewing things in a less productive light.
+
+I sat back and thought long and hard about what I had done and what I
+had allowed to happen to me. Let it be known, I had the absolute control
+of a deaf-mute over my environment. I had set me up and thrown myself to
+the whims of random chance, not my friend, not the guy who I thought
+should catch hell for setting the events in motion. In my own recently
+acquired fucked up way, I had cleverly masked my emotions, my desires,
+and my perceptions\--all in the journey to some sort of enlightenment
+the Buddhists call nirvana. I had created a screwy cast of characters
+and analogous relations to better answer the questions of why: why I had
+kidded myself, why I had become disturbed, perhaps obsessed with present
+and past events, and why the whole affair had such a profound effect on
+me. The girl served as the curious side of me, my erection as my
+limitations, the stimulants my way of altering reality and the
+Ho-Hos...well, I'm still not sure where those things fit into this whole
+mess. Do I blame myself? Do I pity myself? Do I hate myself? Do I think
+this changed me? No, no, uncertain, and maybe for the good but more for
+the bad.
+
+But. . .
+
+Glad the DAY is gone.
+
+The adventure a wash
+
+Clear memory now a peek through dirty glass. . .
+
+No regrets. Not now or never. I wish to hide away, to be with myself, to
+impregnate my creativity, to birth a new me, and to disappear. Perhaps
+to a place unknown to even me. That's about it, I guess. Oh, yeah, to be
+more selfish, that would be nice, and to obsess even more on
+introspective thoughts. The comforts of which are invaluable and without
+horizon.
+
+<img src="media/image1.png" style="width:1.44792in;height:0.54167in" />
+
