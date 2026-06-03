@@ -74,7 +74,12 @@ Before any actual Kindle submission, do these in order:
    or a permanent publication solution.
 2. Perform a real line edit on the full manuscript, especially the most
    explicit sections.
-3. Reassess whether any scenes read as gratuitous rather than necessary
-   to the novella's emotional logic.
-4. If the reconstructed ending remains, disclose AI-generated text in
+3. Reduce sexual content and profanity where they stop deepening
+   character and start merely repeating stance, bravado, disgust, or
+   appetite.
+4. Keep the scenes that materially change the emotional stakes, and trim
+   the ones that only restate the same sexual hostility or self-mythology.
+5. Reassess whether any scenes still read as gratuitous rather than
+   necessary to the novella's emotional logic.
+6. If the reconstructed ending remains, disclose AI-generated text in
    KDP's required field.

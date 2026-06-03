@@ -57,6 +57,9 @@ decisions live.
 1. Confirm the manuscript gap around the missing final thirty days section.
 2. Produce an editorial assessment of the existing text as a novella-in-progress.
 3. Decide whether the missing material should be restored, rewritten, or restructured.
-4. Use the current proof and EPUB for private editorial reading while the
+4. Line-edit the full manuscript with special attention to repetitive
+   sexual content and profanity that flatten the emotional range instead
+   of deepening character.
+5. Use the current proof and EPUB for private editorial reading while the
    completion question remains open.
-5. Only after completion, build formal print and ebook submission files.
+6. Only after completion, build formal print and ebook submission files.
