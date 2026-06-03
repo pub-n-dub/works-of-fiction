@@ -10,6 +10,7 @@ This directory contains the LaTeX-based print production path for *The Black Hou
 - `body-clean.tex`: manuscript body with duplicated front matter removed
 - `body-edited.tex`: manuscript body generated from the edited standalone story files
 - `build-edited-lualatex.sh`: build helper for the integrated edited edition
+- `rebuild-edited-book.sh`: regenerates the integrated edited manuscript and LaTeX body
 
 ## Build
 
@@ -28,6 +29,7 @@ If `luaotfload` complains about not having a writable cache path, use:
 For the integrated edited edition, use:
 
 ```sh
+./rebuild-edited-book.sh
 ./build-edited-lualatex.sh
 ```
 
@@ -39,6 +41,7 @@ Run it twice if the table of contents or page references change.
 - `body-from-docx.tex` is the raw conversion output
 - `body-clean.tex` is the current print body used for compilation
 - `body-edited.tex` is generated from `01-manuscript/the-black-house-edited.md`
+- `rebuild-edited-book.sh` inserts clean separators between story files before regeneration
 - `build-lualatex.sh` provides a sandbox-safe LuaLaTeX build with a writable cache home
 - `black-house-edited-print.tex` and `build-edited-lualatex.sh` produce the integrated edited working book
 - once we begin active editing, we may prefer to generate from `01-manuscript/the-black-house-working.md` instead of directly from the `.docx`

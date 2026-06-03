@@ -39,6 +39,8 @@ The kitten was flailing to release itself from the shell of an egg, blue and lus
 *Boagaphish*.
 
 Boagaphish? What is a Boagaphish? It sounded nonsensical and impugn but I knew Boagaphish was the name of the small, strange creature that hatched from the egg I had cradled in my arm. I could still feel the sensation of wetness from saliva of the cat on the inside of my elbow, which as I habitually brushed at, a jolt of electricity ran though my body causing me to shudder. I had experienced something profound, I thought, and although I did not understand and could not even conceive of how to understand it, I knew it represented something terribly important. Although I had misplaced the importance of the imagery for a number of years, I could not ever expunge it from my emotions or from my memory.
+
+
 # A Forgotten Memory
 
 A radio played softly in the distance, two voices intertwined with the music under a heavy grey sky.
@@ -397,6 +399,8 @@ He yelled. "I have!" He knelt and violently shook the bed. Maria's head fell laz
 
 He breathed deeply, put on his coat and walked outside. As he crossed the street her phone rang, he looked back once. He got into the oxidized red 1955 Buick Special; a small comforting voice whispered in his ear. He turned the key, the sound of the rotted exhaust pulsated off the buildings.
 
+
+
 # Absolution
 
 If I could just get away from them, then I would be okay. And it isn't as if I haven't tried. I've sent them to my friends, people I don't like, and to anybody who I felt deserved them. I even tried selling them---at garage sales and pawn shops---but no one would take them. One guy at *The Divine Head* seemed interested, but when I came back to make the deal, no one knew where I could find him. So, I'm stuck with them and they are stuck with me. But I haven't given up. In fact, last night with the help of my friend Dana, I sent them away to the other side of the universe---to Marduk, she said---but I don't think it worked.
@@ -565,6 +569,8 @@ It's all for the best, you know. It's inevitable that people must die by the dro
 
 The day draws near. I have buried myself within them. There isn't a doubt that I will be okay. I'll be fine. Just peachy.
 
+
+
 # Testimony of a Loved One
 
 This place is ennobled with pith and despair; I have found myself consumed by it. I hadn't been here long when I came to realize this, perhaps it has been the season of rains that has eroded my better self. Or maybe it was the pallid, disdainful looks on passersby that caused my mind to think of strange, odd pieces of philosophy and reason. Whatever had happened, I had come to a point in my life that things were starting to change.
@@ -646,6 +652,8 @@ Between the past and the future lies what is undone. As with the tenet of physic
 That's about as far as I have gotten with the paper. I had originally conceived of this paper while dining at Tartino's on Fisherman's Wharf in San Francisco some ten years earlier but never pursued it. I thought I had forgotten the work until very recently. I was riding on the tram during what was supposed to be the summer. Instead of hot, sunny days, I was greeted with cold and rain. In my lingering depression and finding myself staring at the scenery passing by, the paper ebbed back into my thoughts and soon I found I was becoming obsessed with finishing it. I immediately went home and started writing in earnest; I should have been teaching a private lesson with a client named Daniela but I quickly canceled it. If I go on like this, I won't have any money at all. But right at this moment it doesn't matter. Besides, it seems my client is looking for more than just English lessons and being recently divorced, I wasn't looking for a new relationship in this foreign land. There were too many answers to questions in contrasting languages.
 
 It is a Wednesday like any other here, the city calls to me. In the deafening roar of silence, the past and the present mingle like two lovers recently estranged. I have the urge to wander the streets, to walk upon the same cobbles Goethe had and see myself as a twisted, post-modern Faust---sans tragedy. Today the sky is a deep grey, there is no distinction of clouds stretching to the horizon. Rain pummels the roofs of yawning buildings where the tourists take refuge and me, well, I stare blindly into the monochrome watercolor.
+
+
 
 # Of Something I Once Knew
 
@@ -1411,6 +1419,8 @@ I have been here an immeasurable time. I've seen the days turn to night and the 
 
 Whatever name I had before is lost, a triviality erased by the dismal abyss of this structure. I am Daragin now---Master of the Black House.
 
+
+
 # Life in the Real or the Transformation of a "Normal" Person Through the Void of an Enigmatic Existence
 
 The DAY has passed.
@@ -1598,6 +1608,8 @@ The adventure a wash
 Clear memory now a peek through dirty glass. . .
 
 No regrets. Not now or never. I wish to hide away, to be with myself, to impregnate my creativity, to birth a new me, and to disappear. Perhaps to a place unknown to even me. That's about it, I guess. Oh, yeah, to be more selfish, that would be nice, and to obsess even more on introspective thoughts. The comforts of which are invaluable and without horizon.
+
+
 
 # The Electric Cipher
 
@@ -3691,6 +3703,8 @@ I a flash I saw all the people I knew during my lifetime, those good memories an
 
 I can hear Uncler yelling. He keeps repeating what he's saying. He really *is* a good sort, despite what he thinks about himself. But I see he is not ready for the truth, like I had been. I completely understand him, but I cannot go along with him anymore. What we had could have been special, had he not chose to take advantage of me rather than love me, as he so professed. The same could have been said about Marian and Judy. Frank, though, was a *true* friend, I could feel the love from him in the gate. Together in the spaces without time, eternal and complete. Sorry Sam, I've had enough division, enough strife, and enough nonsense. In a rapid snapping motion, I am pulled through the gate, my vision a hot flash of alabaster, then the cool ooze of onyx.
 
+
+
 # The Flashback
 
 On this day in California, it was long and hot, much unlike the cold climate of the Midwest I knew so well. The heat was unbearable. I had been sweating; stagnant water reeked on me. She was ahead of me, in the distance, her brown hair and black eyes hypnotizing me. She was a native of the state; I was not. She was pure and innocent with love in her heart; I was blackened, a soul of ash, empty, abandoned, ready to strike and sate my desires. I should be dead; a part of me is, but the rest has yet to catch up, an irony to end all ironies---it is a fate I have learned to accept.
@@ -3921,6 +3935,8 @@ She was sprawled out on the bed beside me. A dull brass candlestick protruded fr
 
 Cold laughter echoed from an open window. I rushed toward it. The air was warm. Through the glass, I saw in the distance the black lake with its sad pines crouched around it. I saw the figure disguised as me climbing out of the lake, drenched and blackened. Valerie was screaming. She was dissolving; many hands were on her. She was pulled under---a gurgling sound and air bubbles rising to the surface sickened me. I smiled at myself, teeth gleaming.
 
+
+
 # The Itch
 
 Steven Lovan Cord, after greeting the last invited guests to his retirement party and refusing to accept a continuing role as an adviser to the Company, fell into a heap before Mrs. Donalsed on the floor. Boagaphish, Cord's grey and black tabby, whose attention had been on a balloon string wafting up and down, watched with awe and curiosity at Cord's convulsions. Near the scene, Mrs. Donalsed's looks of trepidation shot through the gathering crowd. Never had she felt more a mix of fear, loathing, and horror than when she heard the details of the news when her husband, who had been director at a University laboratory, died in a mysterious accident there. Boagaphish, cutting a swath between many sets of towering thin and thick legs covered in pressed black and blue cloths, stood over Mr. Cord's face.
@@ -3992,4 +4008,6 @@ She stopped scratching and suddenly looked at Cord.
 He continued to caress her. The itch that had risen to such intensity abruptly subsided. They lay together as the room became dark. His breathing became slow and less deliberate, his body twitched and his face winced. Her gaze never left Cord's eyes and as the last glimmers of brightness left him, she closed her eyes and dreamt of wires.
 
 \*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+
+
 
