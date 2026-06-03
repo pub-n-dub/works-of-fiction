@@ -1,0 +1,9 @@
+\contentsline {section}{\numberline {0.1}Prelude}{1}{section.0.1}%
+\contentsline {section}{\numberline {0.2}A forgotten memory}{8}{section.0.2}%
+\contentsline {section}{\numberline {0.3}Absolution}{23}{section.0.3}%
+\contentsline {section}{\numberline {0.4}Testimony of a loved one}{37}{section.0.4}%
+\contentsline {section}{\numberline {0.5}Of something I once knew}{50}{section.0.5}%
+\contentsline {section}{\numberline {0.6}Life in the \emph {real} or the transformation of a ``normal'' person through the void of an enigmatic existence}{98}{section.0.6}%
+\contentsline {section}{\numberline {0.7}The electric cipher}{111}{section.0.7}%
+\contentsline {section}{\numberline {0.8}The flashback}{211}{section.0.8}%
+\contentsline {section}{\numberline {0.9}The itch}{225}{section.0.9}%
