@@ -1,0 +1,156 @@
+[Fri May 18 08:20:59 UTC 2018][INFO] [Action] EE NewBook
+[Fri May 18 08:21:02 UTC 2018][INFO] [Action] E AutoChapterGroupAction - 0
+[Fri May 18 08:21:07 UTC 2018][INFO] [Action] E AutoChapterGroupAction - 1
+[Fri May 18 08:21:11 UTC 2018][INFO] [Action] E AddTextContainer - (c,497,1),1,0,0
+[Fri May 18 08:21:12 UTC 2018][INFO] [Action] E AddTextContainer - (c,498,1),1,0,0
+[Fri May 18 08:21:22 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:21:29 UTC 2018][INFO] [Action] E PreviewBook - 1
+[Fri May 18 08:21:41 UTC 2018][INFO] [Action] E AddTextContainer - (c,499,1),1,0,0
+[Fri May 18 08:21:43 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:21:44 UTC 2018][INFO] [Action] E PreviewBook - 499
+[Fri May 18 08:22:23 UTC 2018][INFO] [Action] EE ApplySemantics - (c,501,1),other_page_title
+[Fri May 18 08:22:26 UTC 2018][INFO] [Action] U ApplySemantics
+[Fri May 18 08:22:47 UTC 2018][INFO] [Action] E ApplyThemeBook - classic_theme
+[Fri May 18 08:22:53 UTC 2018][INFO] [Action] E MergeContainer - 499,0
+[Fri May 18 08:22:58 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:22:59 UTC 2018][INFO] [Action] E PreviewBook - 71
+[Fri May 18 08:23:10 UTC 2018][INFO] [Action] E MergeContainer - 71,1
+[Fri May 18 08:23:13 UTC 2018][INFO] [Action] U MergeContainer
+[Fri May 18 08:23:19 UTC 2018][INFO] [Action] E AddTextContainer - (c,499,1),1,0,0
+[Fri May 18 08:23:22 UTC 2018][INFO] [Action] E MergeContainer - 500,1
+[Fri May 18 08:23:29 UTC 2018][INFO] [Action] E DeleteContent - (r,441,449),B
+[Fri May 18 08:23:30 UTC 2018][INFO] [Action] E AddTextContainer - (c,441,1),1,0,0
+[Fri May 18 08:23:34 UTC 2018][INFO] [Action] E PreviewBook - 71
+[Fri May 18 08:23:39 UTC 2018][INFO] [Action] E AddTextContainer - (c,440,2),0,0,0
+[Fri May 18 08:23:41 UTC 2018][INFO] [Action] U AddTextContainer
+[Fri May 18 08:23:44 UTC 2018][INFO] [Action] E AddTextContainer - (c,489,1),1,0,0
+[Fri May 18 08:23:46 UTC 2018][INFO] [Action] E PreviewBook - 71
+[Fri May 18 08:23:53 UTC 2018][INFO] [Action] E AddTextContainer - (c,442,1),1,0,0
+[Fri May 18 08:23:55 UTC 2018][INFO] [Action] E MergeContainer - 492,0
+[Fri May 18 08:23:56 UTC 2018][INFO] [Action] E PreviewBook - 492
+[Fri May 18 08:24:07 UTC 2018][INFO] [Action] E PreviewBook - 492
+[Fri May 18 08:24:19 UTC 2018][INFO] [Action] E AddTextContainer - (c,492,1),1,0,0
+[Fri May 18 08:24:21 UTC 2018][INFO] [Action] E PreviewBook - 492
+[Fri May 18 08:24:25 UTC 2018][INFO] [Action] E AddTextContainer - (c,493,1),1,0,0
+[Fri May 18 08:24:26 UTC 2018][INFO] [Action] E PreviewBook - 492
+[Fri May 18 08:24:42 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:24:47 UTC 2018][INFO] [Action] E PreviewBook - 492
+[Fri May 18 08:26:28 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:26:54 UTC 2018][INFO] [Action] EE PackageWorkspace
+[Fri May 18 08:26:57 UTC 2018][INFO] Logger Terminated
+[Tue Feb 21 09:30:57 UTC 2023][INFO] [Action] EE OpenBook
+[Tue Feb 21 09:31:07 UTC 2023][INFO] [Action] E AddTextContainer - (c,491,2),0,0,0
+[Tue Feb 21 09:31:07 UTC 2023][INFO] [Action] E AddTextContainer - (c,492,1),1,0,0
+[Tue Feb 21 09:31:08 UTC 2023][INFO] [Action] E AddTextContainer - (c,493,1),1,0,0
+[Tue Feb 21 09:31:12 UTC 2023][INFO] [Action] E InsertTextContent - (c,88,1),[T]
+[Tue Feb 21 09:31:12 UTC 2023][INFO] [Action] E InsertTextContent - (c,88,2),[h]
+[Tue Feb 21 09:31:12 UTC 2023][INFO] [Action] E InsertTextContent - (c,89,2),[e]
+[Tue Feb 21 09:31:12 UTC 2023][INFO] [Action] E InsertTextContent - (c,90,2),[SPACE]
+[Tue Feb 21 09:31:15 UTC 2023][INFO] [Action] E InsertTextContent - (c,100,2),[C]
+[Tue Feb 21 09:31:15 UTC 2023][INFO] [Action] E InsertTextContent - (c,101,2),[o]
+[Tue Feb 21 09:31:16 UTC 2023][INFO] [Action] E InsertTextContent - (c,102,2),[m]
+[Tue Feb 21 09:31:16 UTC 2023][INFO] [Action] E InsertTextContent - (c,103,2),[p]
+[Tue Feb 21 09:31:16 UTC 2023][INFO] [Action] E InsertTextContent - (c,104,2),[a]
+[Tue Feb 21 09:31:16 UTC 2023][INFO] [Action] E InsertTextContent - (c,105,2),[n]
+[Tue Feb 21 09:31:17 UTC 2023][INFO] [Action] E InsertTextContent - (c,106,2),[y]
+[Tue Feb 21 09:31:17 UTC 2023][INFO] [Action] E InsertTextContent - (c,107,2),[SPACE]
+[Tue Feb 21 09:31:23 UTC 2023][INFO] [Action] E AddTextContainer - (c,474,1),1,0,0
+[Tue Feb 21 09:31:24 UTC 2023][INFO] [Action] E InsertTextContent - (c,475,1),[T]
+[Tue Feb 21 09:31:25 UTC 2023][INFO] [Action] E InsertTextContent - (c,475,2),[e]
+[Tue Feb 21 09:31:25 UTC 2023][INFO] [Action] E InsertTextContent - (c,476,2),[SPACE]
+[Tue Feb 21 09:31:26 UTC 2023][INFO] [Action] E DeleteContent - (c,477,2),B
+[Tue Feb 21 09:31:26 UTC 2023][INFO] [Action] E DeleteContent - (c,477,1),B
+[Tue Feb 21 09:31:27 UTC 2023][INFO] [Action] E InsertTextContent - (c,476,1),[h]
+[Tue Feb 21 09:31:27 UTC 2023][INFO] [Action] E InsertTextContent - (c,476,2),[e]
+[Tue Feb 21 09:31:27 UTC 2023][INFO] [Action] E InsertTextContent - (c,477,2),[SPACE]
+[Tue Feb 21 09:31:28 UTC 2023][INFO] [Action] E InsertTextContent - (c,486,2),[SPACE]
+[Tue Feb 21 09:31:29 UTC 2023][INFO] [Action] E InsertTextContent - (c,487,2),[C]
+[Tue Feb 21 09:31:29 UTC 2023][INFO] [Action] E InsertTextContent - (c,488,2),[o]
+[Tue Feb 21 09:31:29 UTC 2023][INFO] [Action] E InsertTextContent - (c,489,2),[m]
+[Tue Feb 21 09:31:30 UTC 2023][INFO] [Action] E InsertTextContent - (c,490,2),[p]
+[Tue Feb 21 09:31:30 UTC 2023][INFO] [Action] E InsertTextContent - (c,491,2),[a]
+[Tue Feb 21 09:31:30 UTC 2023][INFO] [Action] E InsertTextContent - (c,492,2),[n]
+[Tue Feb 21 09:31:30 UTC 2023][INFO] [Action] E InsertTextContent - (c,493,2),[y]
+[Tue Feb 21 09:31:32 UTC 2023][INFO] [Action] E DeleteContent - (c,514,2),B
+[Tue Feb 21 09:31:32 UTC 2023][INFO] [Action] E DeleteContent - (c,513,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,512,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,511,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,510,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,509,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,508,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,507,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,506,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,505,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,504,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,503,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,502,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,501,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,500,2),B
+[Tue Feb 21 09:31:33 UTC 2023][INFO] [Action] E DeleteContent - (c,499,2),B
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E DeleteContent - (c,498,2),B
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E DeleteContent - (c,497,2),B
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E DeleteContent - (c,496,2),B
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E DeleteContent - (c,495,2),B
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,495,2),[c]
+[Tue Feb 21 09:31:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,495,2),[a]
+[Tue Feb 21 09:31:35 UTC 2023][INFO] [Action] E InsertTextContent - (c,496,2),[r]
+[Tue Feb 21 09:31:35 UTC 2023][INFO] [Action] E InsertTextContent - (c,497,2),[h]
+[Tue Feb 21 09:31:35 UTC 2023][INFO] [Action] E InsertTextContent - (c,498,2),[t]
+[Tue Feb 21 09:31:35 UTC 2023][INFO] [Action] E InsertTextContent - (c,499,2),[u]
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E DeleteContent - (c,500,2),B
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E DeleteContent - (c,499,2),B
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E DeleteContent - (c,498,2),B
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E InsertTextContent - (c,497,2),[t]
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E InsertTextContent - (c,498,2),[h]
+[Tue Feb 21 09:31:36 UTC 2023][INFO] [Action] E InsertTextContent - (c,499,2),[e]
+[Tue Feb 21 09:31:37 UTC 2023][INFO] [Action] E InsertTextContent - (c,500,2),[u]
+[Tue Feb 21 09:31:37 UTC 2023][INFO] [Action] E InsertTextContent - (c,501,2),[r]
+[Tue Feb 21 09:31:37 UTC 2023][INFO] [Action] E InsertTextContent - (c,502,2),[@]
+[Tue Feb 21 09:31:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,503,2),[p]
+[Tue Feb 21 09:31:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,504,2),[m]
+[Tue Feb 21 09:31:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,505,2),[.]
+[Tue Feb 21 09:31:39 UTC 2023][INFO] [Action] E InsertTextContent - (c,506,2),[m]
+[Tue Feb 21 09:31:39 UTC 2023][INFO] [Action] E InsertTextContent - (c,507,2),[e]
+[Tue Feb 21 09:31:42 UTC 2023][INFO] [Action] E AddTextContainer - (c,494,2),0,0,0
+[Tue Feb 21 09:31:44 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:31:51 UTC 2023][INFO] [Action] E MergeContainer - 516,0
+[Tue Feb 21 09:32:07 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:32:45 UTC 2023][INFO] [Action] E Paste - (c,510,2),394
+[Tue Feb 21 09:32:55 UTC 2023][INFO] [Action] E DeleteContent - (c,521,1),B
+[Tue Feb 21 09:33:05 UTC 2023][INFO] [Action] E DeleteContent - (r,524,524),F
+[Tue Feb 21 09:33:06 UTC 2023][INFO] [Action] E DeleteContent - (r,524,524),F
+[Tue Feb 21 09:33:07 UTC 2023][INFO] [Action] E InsertTextContent - (c,523,2),[1]
+[Tue Feb 21 09:33:07 UTC 2023][INFO] [Action] E InsertTextContent - (c,524,2),[8]
+[Tue Feb 21 09:33:13 UTC 2023][INFO] [Action] E DeleteContent - (r,71,509),F
+[Tue Feb 21 09:33:15 UTC 2023][INFO] [Action] E AddTextContainer - (c,71,1),1,0,0
+[Tue Feb 21 09:33:15 UTC 2023][INFO] [Action] E AddTextContainer - (c,72,1),1,0,0
+[Tue Feb 21 09:33:16 UTC 2023][INFO] [Action] E AddTextContainer - (c,73,1),1,0,0
+[Tue Feb 21 09:33:16 UTC 2023][INFO] [Action] E AddTextContainer - (c,74,1),1,0,0
+[Tue Feb 21 09:33:17 UTC 2023][INFO] [Action] E AddTextContainer - (c,75,1),1,0,0
+[Tue Feb 21 09:33:20 UTC 2023][INFO] [Action] E AddTextContainer - (c,462,2),0,0,0
+[Tue Feb 21 09:33:56 UTC 2023][INFO] [Action] E Copy - (r,76,458)
+[Tue Feb 21 09:34:38 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:34:52 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:34:52 UTC 2023][INFO] Logger Terminated
+[Tue Feb 21 09:35:29 UTC 2023][INFO] [Action] EE OpenBook - Disturbed_KC.kcb
+[Tue Feb 21 11:27:05 UTC 2023][INFO] [Action] EE ShowAbout
+[Tue Feb 21 11:27:12 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 11:27:12 UTC 2023][INFO] Logger Terminated
+[Tue Mar 07 16:43:08 UTC 2023][INFO] [Action] EE OpenBook - Disturbed_KC.kcb
+[Tue Mar 07 16:43:23 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Mar 07 16:43:25 UTC 2023][INFO] [Action] E PreviewBook - 76
+[Tue Mar 07 16:43:52 UTC 2023][INFO] [Action] E SaveBook - SaveforExport
+[Tue Mar 07 16:45:12 UTC 2023][INFO] [Action] EE ExportAction
+[Tue Mar 07 16:48:05 UTC 2023][INFO] [Action] E ApplyThemeBook - modern_theme
+[Tue Mar 07 16:51:14 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Mar 07 16:52:06 UTC 2023][INFO] [Action] E PreviewBook - 76
+[Tue Mar 07 16:52:29 UTC 2023][INFO] [Action] E ApplySemantics - (r,1,1),chapter_title
+[Tue Mar 07 16:52:31 UTC 2023][INFO] [Action] E ApplySemantics - (r,1,1),chapter_subtitle
+[Tue Mar 07 16:52:34 UTC 2023][INFO] [Action] E ApplySemantics - (r,1,1),subheading
+[Tue Mar 07 16:52:36 UTC 2023][INFO] [Action] U ApplySemantics
+[Tue Mar 07 16:52:36 UTC 2023][INFO] [Action] U ApplySemantics
+[Tue Mar 07 16:52:54 UTC 2023][INFO] [Action] E PreviewBook - 73
+[Tue Mar 07 16:53:33 UTC 2023][INFO] [Action] E ItemChanged - -1,1
+[Tue Mar 07 17:02:17 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Mar 07 17:02:18 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Mar 07 17:02:18 UTC 2023][INFO] Logger Terminated

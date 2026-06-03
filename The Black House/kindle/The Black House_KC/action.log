@@ -1,0 +1,127 @@
+[Fri May 18 08:13:34 UTC 2018][INFO] [Action] EE NewBook
+[Fri May 18 08:13:40 UTC 2018][INFO] [Action] E AutoChapterGroupAction - 0
+[Fri May 18 08:14:04 UTC 2018][INFO] [Action] E ItemChanged - -1,14083
+[Fri May 18 08:14:39 UTC 2018][INFO] [Action] E ItemChanged - -1,355215
+[Fri May 18 08:14:40 UTC 2018][INFO] [Action] E ItemChanged - -1,332182
+[Fri May 18 08:14:42 UTC 2018][INFO] [Action] E ItemChanged - -1,181026
+[Fri May 18 08:14:45 UTC 2018][INFO] [Action] E ItemChanged - -1,82545
+[Fri May 18 08:14:46 UTC 2018][INFO] [Action] E ItemChanged - -1,59251
+[Fri May 18 08:14:53 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:15:06 UTC 2018][INFO] [Action] E PreviewBook - 55508
+[Fri May 18 08:16:03 UTC 2018][INFO] Logger Terminated
+[Fri May 18 08:27:00 UTC 2018][INFO] [Action] EE OpenBook - C:/aiventure-research/book-proposals/works of fiction/The Black House/kindle/The Black House_KC/The Black House_KC.kcb
+[Fri May 18 08:27:03 UTC 2018][INFO] [Action] E PreviewBook - 1
+[Fri May 18 08:27:54 UTC 2018][INFO] [Action] E SaveBook - Save
+[Fri May 18 08:28:03 UTC 2018][INFO] [Action] EE PackageWorkspace
+[Fri May 18 08:28:06 UTC 2018][INFO] Logger Terminated
+[Tue Feb 21 09:29:19 UTC 2023][INFO] [Action] EE OpenBook - The Black House_KC.kcb
+[Tue Feb 21 09:29:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,706,1),[T]
+[Tue Feb 21 09:29:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,706,2),[h]
+[Tue Feb 21 09:29:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,707,2),[e]
+[Tue Feb 21 09:29:34 UTC 2023][INFO] [Action] E InsertTextContent - (c,708,2),[SPACE]
+[Tue Feb 21 09:29:36 UTC 2023][INFO] [Action] E InsertTextContent - (c,717,2),[SPACE]
+[Tue Feb 21 09:29:37 UTC 2023][INFO] [Action] E InsertTextContent - (c,718,2),[C]
+[Tue Feb 21 09:29:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,719,2),[o]
+[Tue Feb 21 09:29:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,720,2),[m]
+[Tue Feb 21 09:29:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,721,2),[p]
+[Tue Feb 21 09:29:38 UTC 2023][INFO] [Action] E InsertTextContent - (c,722,2),[a]
+[Tue Feb 21 09:29:39 UTC 2023][INFO] [Action] E InsertTextContent - (c,723,2),[n]
+[Tue Feb 21 09:29:39 UTC 2023][INFO] [Action] E InsertTextContent - (c,724,2),[y]
+[Tue Feb 21 09:29:41 UTC 2023][INFO] [Action] E DeleteContent - (c,745,2),B
+[Tue Feb 21 09:29:44 UTC 2023][INFO] [Action] E DeleteContent - (c,744,2),B
+[Tue Feb 21 09:29:44 UTC 2023][INFO] [Action] E DeleteContent - (c,743,2),B
+[Tue Feb 21 09:29:45 UTC 2023][INFO] [Action] E DeleteContent - (c,742,2),B
+[Tue Feb 21 09:29:46 UTC 2023][INFO] [Action] E InsertTextContent - (c,741,2),[@]
+[Tue Feb 21 09:29:46 UTC 2023][INFO] [Action] E InsertTextContent - (c,742,2),[p]
+[Tue Feb 21 09:29:46 UTC 2023][INFO] [Action] E InsertTextContent - (c,743,2),[m]
+[Tue Feb 21 09:29:47 UTC 2023][INFO] [Action] E InsertTextContent - (c,744,2),[.]
+[Tue Feb 21 09:29:47 UTC 2023][INFO] [Action] E InsertTextContent - (c,745,2),[m]
+[Tue Feb 21 09:29:47 UTC 2023][INFO] [Action] E InsertTextContent - (c,746,2),[e]
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,741,2),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,741,1),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,740,1),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,739,1),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,738,1),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,737,1),B
+[Tue Feb 21 09:29:51 UTC 2023][INFO] [Action] E DeleteContent - (c,736,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,735,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,734,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,733,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,732,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,731,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,730,1),B
+[Tue Feb 21 09:29:52 UTC 2023][INFO] [Action] E DeleteContent - (c,729,1),B
+[Tue Feb 21 09:29:53 UTC 2023][INFO] [Action] E DeleteContent - (c,728,1),B
+[Tue Feb 21 09:29:53 UTC 2023][INFO] [Action] E DeleteContent - (c,727,1),B
+[Tue Feb 21 09:29:53 UTC 2023][INFO] [Action] E InsertTextContent - (c,726,1),[c]
+[Tue Feb 21 09:29:53 UTC 2023][INFO] [Action] E InsertTextContent - (c,726,2),[a]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,727,2),[r]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,728,2),[t]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,729,2),[h]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,730,2),[e]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,731,2),[u]
+[Tue Feb 21 09:29:54 UTC 2023][INFO] [Action] E InsertTextContent - (c,732,2),[r]
+[Tue Feb 21 09:29:59 UTC 2023][INFO] [Action] E AddTextContainer - (c,705,2),0,0,0
+[Tue Feb 21 09:30:02 UTC 2023][INFO] [Action] E AddTextContainer - (c,726,2),0,0,0
+[Tue Feb 21 09:30:06 UTC 2023][INFO] [Action] E AddTextContainer - (c,706,2),0,0,0
+[Tue Feb 21 09:30:21 UTC 2023][INFO] [Action] E InsertTextContent - (c,319,1),[T]
+[Tue Feb 21 09:30:21 UTC 2023][INFO] [Action] E InsertTextContent - (c,319,2),[h]
+[Tue Feb 21 09:30:21 UTC 2023][INFO] [Action] E InsertTextContent - (c,320,2),[e]
+[Tue Feb 21 09:30:21 UTC 2023][INFO] [Action] E InsertTextContent - (c,321,2),[SPACE]
+[Tue Feb 21 09:30:25 UTC 2023][INFO] [Action] E InsertTextContent - (c,331,2),[C]
+[Tue Feb 21 09:30:25 UTC 2023][INFO] [Action] E InsertTextContent - (c,332,2),[o]
+[Tue Feb 21 09:30:25 UTC 2023][INFO] [Action] E InsertTextContent - (c,333,2),[m]
+[Tue Feb 21 09:30:26 UTC 2023][INFO] [Action] E InsertTextContent - (c,334,2),[p]
+[Tue Feb 21 09:30:26 UTC 2023][INFO] [Action] E InsertTextContent - (c,335,2),[a]
+[Tue Feb 21 09:30:26 UTC 2023][INFO] [Action] E InsertTextContent - (c,336,2),[n]
+[Tue Feb 21 09:30:27 UTC 2023][INFO] [Action] E InsertTextContent - (c,337,2),[y]
+[Tue Feb 21 09:30:27 UTC 2023][INFO] [Action] E InsertTextContent - (c,338,2),[SPACE]
+[Tue Feb 21 09:30:30 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:30:41 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:30:42 UTC 2023][INFO] Logger Terminated
+[Tue Feb 21 09:34:07 UTC 2023][INFO] [Action] EE OpenBook - The Black House_KC.kcb
+[Tue Feb 21 09:34:49 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:34:49 UTC 2023][INFO] Logger Terminated
+[Tue Feb 21 09:35:51 UTC 2023][INFO] [Action] EE OpenBook - The Black House_KC.kcb
+[Tue Feb 21 09:35:59 UTC 2023][INFO] [Action] E DeleteContent - (r,302,754),F
+[Tue Feb 21 09:36:00 UTC 2023][INFO] [Action] E AddTextContainer - (c,302,1),1,0,0
+[Tue Feb 21 09:36:01 UTC 2023][INFO] [Action] E AddTextContainer - (c,303,1),1,0,0
+[Tue Feb 21 09:36:02 UTC 2023][INFO] [Action] E Paste - (c,304,1),393
+[Tue Feb 21 09:36:07 UTC 2023][INFO] [Action] E AddTextContainer - (c,304,1),1,0,0
+[Tue Feb 21 09:36:08 UTC 2023][INFO] [Action] E AddTextContainer - (c,305,1),1,0,0
+[Tue Feb 21 09:36:08 UTC 2023][INFO] [Action] E AddTextContainer - (c,306,1),1,0,0
+[Tue Feb 21 09:36:08 UTC 2023][INFO] [Action] E AddTextContainer - (c,307,1),1,0,0
+[Tue Feb 21 09:36:09 UTC 2023][INFO] [Action] E AddTextContainer - (c,308,1),1,0,0
+[Tue Feb 21 09:36:09 UTC 2023][INFO] [Action] E AddTextContainer - (c,309,1),1,0,0
+[Tue Feb 21 09:36:09 UTC 2023][INFO] [Action] E AddTextContainer - (c,310,1),1,0,0
+[Tue Feb 21 09:36:14 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 09:45:14 UTC 2023][INFO] [Action] E ItemChanged - -1,695
+[Tue Feb 21 09:45:15 UTC 2023][INFO] [Action] E ItemChanged - -1,14043
+[Tue Feb 21 09:45:16 UTC 2023][INFO] [Action] E ItemChanged - -1,35330
+[Tue Feb 21 09:45:18 UTC 2023][INFO] [Action] E ItemChanged - -1,59211
+[Tue Feb 21 09:45:19 UTC 2023][INFO] [Action] E ItemChanged - -1,82505
+[Tue Feb 21 09:45:21 UTC 2023][INFO] [Action] E ItemChanged - -1,180986
+[Tue Feb 21 09:45:23 UTC 2023][INFO] [Action] E ItemChanged - -1,332142
+[Tue Feb 21 09:45:24 UTC 2023][INFO] [Action] E ItemChanged - -1,355175
+[Tue Feb 21 09:45:34 UTC 2023][INFO] [Action] E ItemChanged - -1,180986
+[Tue Feb 21 09:45:41 UTC 2023][INFO] [Action] E ItemChanged - -1,14043
+[Tue Feb 21 10:47:34 UTC 2023][INFO] [Action] E SaveBook - SaveforExport
+[Tue Feb 21 11:23:17 UTC 2023][INFO] [Action] EE ExportAction
+[Tue Feb 21 11:26:17 UTC 2023][INFO] [Action] EE ShowAbout
+[Tue Feb 21 11:26:58 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 11:26:59 UTC 2023][INFO] Logger Terminated
+[Tue Feb 21 11:30:07 UTC 2023][INFO] [Action] EE OpenBook - The Black House_KC.kcb
+[Tue Feb 21 11:30:14 UTC 2023][INFO] [Action] E AddTextContainer - (c,76,2),0,0,0
+[Tue Feb 21 11:30:15 UTC 2023][INFO] [Action] E AddTextContainer - (c,77,1),1,0,0
+[Tue Feb 21 11:30:15 UTC 2023][INFO] [Action] E AddTextContainer - (c,78,1),1,0,0
+[Tue Feb 21 11:30:18 UTC 2023][INFO] [Action] E MergeContainer - 311,0
+[Tue Feb 21 11:30:28 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 11:30:33 UTC 2023][INFO] [Action] E SaveBook - SaveforExport
+[Tue Feb 21 11:31:08 UTC 2023][INFO] [Action] EE ExportAction
+[Tue Feb 21 11:31:11 UTC 2023][INFO] [Action] E SaveBook - SaveforExport
+[Tue Feb 21 11:31:43 UTC 2023][INFO] [Action] EE ExportAction
+[Tue Feb 21 11:45:02 UTC 2023][INFO] [Action] EE ShowAbout
+[Tue Feb 21 12:57:57 UTC 2023][INFO] [Action] E SaveBook - Save
+[Tue Feb 21 12:57:58 UTC 2023][INFO] Logger Terminated
+[Tue Feb 21 14:54:45 UTC 2023][INFO] [Action] EE OpenBook - The Black House_KC.kcb
+[Tue Feb 21 14:54:48 UTC 2023][INFO] Logger Terminated
